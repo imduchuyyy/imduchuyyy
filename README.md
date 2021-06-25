@@ -15,13 +15,13 @@ Here are some ideas to get you started:
 -->
 
 <p align="center">
-    <img href="https://github-readme-stats.vercel.app/api/?username=bui-duc-huy&layout=compact&show_icons=true&theme=onedark"/>
+    <img src="https://github-readme-stats.vercel.app/api/?username=bui-duc-huy&layout=compact&show_icons=true&theme=onedark"/>
 </p>
 
 
 
 <p align="center">
-    <img href="https://github-readme-stats.vercel.app/api/top-langs/?username=bui-duc-huy&layout=compact&show_icons=true&theme=onedark"/>
+    <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=bui-duc-huy&layout=compact&show_icons=true&theme=onedark"/>
 </p>
 
 
