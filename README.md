@@ -18,3 +18,5 @@ Here are some ideas to get you started:
 ![My GitHub stats](https://github-readme-stats.vercel.app/api/?username=bui-duc-huy&layout=compact&show_icons=true&theme=onedark)
 
 
+
+![My GitHub stats](https://github-readme-stats.vercel.app/api/top-langs/?username=bui-duc-huy&layout=compact&show_icons=true&theme=onedark)
