@@ -6,7 +6,7 @@ Hi, I'm Bui Duc Huy, a FrontEnd Developer, Blockchain Researcher from Vietnam.
 
 - 🔭 I’m currently working on Blockchain Researcher at Vietnam Blockchain Corporation.
 - 🌱 Right now I’m studying at Ho Chi Minh University of Technology (HCMUT).
-- 💬 Ask me about anything [here](https://github.com/bui-duc-huy/bui-duc-huy/issues).
+- 💬 Checkout my blog [here](https://bui-duc-huy.github.io/).
 - ⚡ Fun fact: I using Vim and Tmux for coding =)).
 
 <!--
