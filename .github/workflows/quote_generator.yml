@@ -7,7 +7,6 @@ on:
 
 jobs:
   build:
-
     runs-on: ubuntu-latest
     strategy:
       matrix:
@@ -19,6 +18,7 @@ jobs:
         uses: actions/setup-python@v2
         with:
           python-version: ${{ matrix.python-version }}
+          default_author: github_actions
       - name: Install dependencies
         run: |
           python -m pip install requests
@@ -27,8 +27,6 @@ jobs:
           python python.py
       - name: Commit to update readme
         run: |
-          git config --global user.email "duchuy.124dk@gmail.com"
-          git config --global user.name "bui-duc-huy"
           git add .
           git commit -m "Updated README.md" || echo "No changes to commit"
           git push
