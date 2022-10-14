@@ -1,3 +1,3 @@
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**Winning is nice if you don't lose your integrity in the process.**_
 
-Honore de Balzac
+Arnold Horshak
