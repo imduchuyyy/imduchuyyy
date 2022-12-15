@@ -1,3 +1,3 @@
-_**Let go of who you think you're supposed to be; embrace who you are.**_
+_**People who are crazy enough to think they can change the world, are the ones who do.**_
 
-Brene Brown
+Apple Computers
