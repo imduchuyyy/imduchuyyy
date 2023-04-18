@@ -1,19 +1,18 @@
+from random_word import RandomWords
 import requests
 
-def get_quote():
-    response = requests.get(url = "https://quotes.rest/qod?language=en")
+def get_quote() -> tuple:
+    response = requests.get(url = "https://api.quotable.io/random")
+
+    if response.status_code != 200:
+        return "Everything will be ok", "Terry"
     
     data = response.json()
 
-    if data["success"]["total"] < 1:
-        return
+    content = data["content"]
+    author = data["author"]
 
-    content = data["contents"]["quotes"][0]
-
-    quote = content["quote"]
-    author = content["author"]
-
-    return quote, author
+    return content, author
 
 def write_to_readme(quote, author):
     f = open("README.md", "w")
@@ -23,7 +22,6 @@ def write_to_readme(quote, author):
 
 def generate():
     quote, author = get_quote()
-
     write_to_readme(quote, author)
 
 generate()
