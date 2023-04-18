@@ -1,4 +1,3 @@
-from random_word import RandomWords
 import requests
 
 def get_quote() -> tuple:
