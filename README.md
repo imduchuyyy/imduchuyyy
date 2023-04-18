@@ -1,3 +1,3 @@
-_**Hang Out with People Who are Better than You.**_
+_**There never was a good knife made of bad steel.**_
 
-Warren Buffett
+Benjamin Franklin
