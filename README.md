@@ -1,3 +1,3 @@
-_**Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.**_
+_**Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others.**_
 
-Richard Bach
+Harriet Lerner
