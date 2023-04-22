@@ -1,3 +1,3 @@
-_**Meetings are indispensable when you don't want to do anything.**_
+_**Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation.**_
 
-John Kenneth Galbraith
+Samuel Richardson
