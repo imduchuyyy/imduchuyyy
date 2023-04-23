@@ -1,3 +1,3 @@
-_**Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation.**_
+_**There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.**_
 
-Samuel Richardson
+Epictetus
