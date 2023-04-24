@@ -1,3 +1,3 @@
-_**There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.**_
+_**You are that vast thing that you see far, far off with great telescopes.**_
 
-Epictetus
+Alan Watts
