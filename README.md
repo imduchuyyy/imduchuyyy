@@ -1,3 +1,3 @@
-_**You are that vast thing that you see far, far off with great telescopes.**_
+_**Happiness does not come from having much, but from being attached to little.**_
 
-Alan Watts
+Cheng Yen
