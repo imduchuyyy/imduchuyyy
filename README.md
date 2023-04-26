@@ -1,3 +1,3 @@
-_**Happiness does not come from having much, but from being attached to little.**_
+_**Reality is merely an illusion, albeit a very persistent one.**_
 
-Cheng Yen
+Albert Einstein
