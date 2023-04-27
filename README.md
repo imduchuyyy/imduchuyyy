@@ -1,3 +1,3 @@
-_**Reality is merely an illusion, albeit a very persistent one.**_
+_**Genuine sincerity opens people's hearts, while manipulation causes them to close.**_
 
-Albert Einstein
+Daisaku Ikeda
