@@ -1,3 +1,3 @@
-_**Pitching is the art of instilling fear.**_
+_**Gratitude is not only the greatest of virtues, but the parent of all the others.**_
 
-Sandy Koufax
+Cicero
