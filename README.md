@@ -1,3 +1,3 @@
-_**Gratitude is not only the greatest of virtues, but the parent of all the others.**_
+_**The exercise of an extraordinary gift is the supremist pleasure in life.**_
 
-Cicero
+Mark Twain
