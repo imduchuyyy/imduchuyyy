@@ -1,3 +1,3 @@
-_**The exercise of an extraordinary gift is the supremist pleasure in life.**_
+_**Joy is the best makeup.**_
 
-Mark Twain
+Anne Lamott
