@@ -1,3 +1,3 @@
-_**Joy is the best makeup.**_
+_**Be like the flower, turn your face to the sun.**_
 
-Anne Lamott
+Kahlil Gibran
