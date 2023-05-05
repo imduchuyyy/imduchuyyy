@@ -1,3 +1,3 @@
-_**Be like the flower, turn your face to the sun.**_
+_**You cannot have what you do not want.**_
 
-Kahlil Gibran
+John Acosta
