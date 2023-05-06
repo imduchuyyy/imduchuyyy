@@ -1,3 +1,3 @@
-_**You cannot have what you do not want.**_
+_**When your desires are strong enough you will appear to possess superhuman powers to achieve.**_
 
-John Acosta
+Napoleon Hill
