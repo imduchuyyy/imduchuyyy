@@ -1,3 +1,3 @@
-_**When your desires are strong enough you will appear to possess superhuman powers to achieve.**_
+_**Wise men make more opportunities than they find.**_
 
-Napoleon Hill
+Francis Bacon
