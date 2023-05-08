@@ -1,3 +1,3 @@
-_**Wise men make more opportunities than they find.**_
+_**It's better to be a lion for a day than a sheep all your life.**_
 
-Francis Bacon
+Elizabeth Kenny
