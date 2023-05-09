@@ -1,3 +1,3 @@
-_**It's better to be a lion for a day than a sheep all your life.**_
+_**If you can't feed a hundred people, then feed just one.**_
 
-Elizabeth Kenny
+Mother Teresa
