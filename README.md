@@ -1,3 +1,3 @@
-_**If you can't feed a hundred people, then feed just one.**_
+_**No one can make you feel inferior without your consent.**_
 
-Mother Teresa
+Eleanor Roosevelt
