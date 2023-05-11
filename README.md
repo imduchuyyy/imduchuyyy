@@ -1,3 +1,3 @@
-_**No one can make you feel inferior without your consent.**_
+_**All of our technology is completely unnecessary to a happy life.**_
 
-Eleanor Roosevelt
+Tom Hodgkinson
