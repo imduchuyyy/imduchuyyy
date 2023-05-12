@@ -1,3 +1,3 @@
-_**All of our technology is completely unnecessary to a happy life.**_
+_**You win the victory when you yield to friends.**_
 
-Tom Hodgkinson
+Sophocles
