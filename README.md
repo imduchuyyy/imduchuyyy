@@ -1,3 +1,3 @@
-_**You win the victory when you yield to friends.**_
+_**Character develops itself in the stream of life.**_
 
-Sophocles
+Johann Wolfgang von Goethe
