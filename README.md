@@ -1,3 +1,3 @@
-_**Character develops itself in the stream of life.**_
+_**Myths which are believed in tend to become true.**_
 
-Johann Wolfgang von Goethe
+George Orwell
