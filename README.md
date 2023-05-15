@@ -1,3 +1,3 @@
-_**Myths which are believed in tend to become true.**_
+_**Ignorance and bungling with love are better than wisdom and skill without.**_
 
-George Orwell
+Henry David Thoreau
