@@ -1,3 +1,3 @@
-_**Ignorance and bungling with love are better than wisdom and skill without.**_
+_**You need chaos in your soul to give birth to a dancing star.**_
 
-Henry David Thoreau
+Friedrich Nietzsche
