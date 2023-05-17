@@ -1,3 +1,3 @@
-_**You need chaos in your soul to give birth to a dancing star.**_
+_**Fortune befriends the bold.**_
 
-Friedrich Nietzsche
+John Dryden
