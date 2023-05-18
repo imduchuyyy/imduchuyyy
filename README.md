@@ -1,3 +1,3 @@
-_**Fortune befriends the bold.**_
+_**The poor man is not he who is without a cent, but he who is without a dream.**_
 
-John Dryden
+Harry Kemp
