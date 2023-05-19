@@ -1,3 +1,3 @@
-_**The poor man is not he who is without a cent, but he who is without a dream.**_
+_**The most complicated achievements of thought are possible without the assistance of consciousness.**_
 
-Harry Kemp
+Sigmund Freud
