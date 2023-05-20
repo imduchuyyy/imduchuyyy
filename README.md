@@ -1,3 +1,3 @@
-_**The most complicated achievements of thought are possible without the assistance of consciousness.**_
+_**Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.**_
 
-Sigmund Freud
+The Buddha
