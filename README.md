@@ -1,3 +1,3 @@
-_**Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.**_
+_**Never, never, never give up.**_
 
-The Buddha
+Winston Churchill
