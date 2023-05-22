@@ -1,3 +1,3 @@
-_**Never, never, never give up.**_
+_**It is not uncommon for people to spend their whole life waiting to start living.**_
 
-Winston Churchill
+Eckhart Tolle
