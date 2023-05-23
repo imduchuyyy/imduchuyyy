@@ -1,3 +1,3 @@
-_**It is not uncommon for people to spend their whole life waiting to start living.**_
+_**What you do not want done to yourself, do not do to others.**_
 
-Eckhart Tolle
+Confucius
