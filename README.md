@@ -1,3 +1,3 @@
-_**What you do not want done to yourself, do not do to others.**_
+_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
 
-Confucius
+Winston Churchill
