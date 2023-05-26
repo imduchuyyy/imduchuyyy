@@ -1,3 +1,3 @@
-_**The greatest mistake you can make in life is to be continually fearing you will make one.**_
+_**The happiness that is genuinely satisfying is accompanied by the fullest exercise of our faculties and the fullest realization of the world in which we live.**_
 
-Elbert Hubbard
+Bertrand Russell
