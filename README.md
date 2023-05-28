@@ -1,3 +1,3 @@
-_**Accept the challenges so that you can feel the exhilaration of victory.**_
+_**It is impossible to love and to be wise.**_
 
-George S. Patton
+Francis Bacon
