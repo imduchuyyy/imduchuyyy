@@ -1,3 +1,3 @@
-_**The attempt to combine wisdom and power has only rarely been successful and then only for a short while.**_
+_**I can't listen to that much Wagner. I start getting the urge to conquer Poland.**_
 
-Albert Einstein
+Woody Allen
