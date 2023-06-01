@@ -1,3 +1,3 @@
-_**I can't listen to that much Wagner. I start getting the urge to conquer Poland.**_
+_**No man is free who is not master of himself.**_
 
-Woody Allen
+Epictetus
