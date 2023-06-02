@@ -1,3 +1,3 @@
-_**No man is free who is not master of himself.**_
+_**In the middle of every difficulty lies opportunity.**_
 
-Epictetus
+Albert Einstein
