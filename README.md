@@ -1,3 +1,3 @@
-_**Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious.**_
+_**Imagination is the highest kite one can fly.**_
 
-Stephen Hawking
+Lauren Bacall
