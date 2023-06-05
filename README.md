@@ -1,3 +1,3 @@
-_**Imagination is the highest kite one can fly.**_
+_**Fear grows in darkness; if you think there's a bogeyman around, turn on the light.**_
 
-Lauren Bacall
+Dorothy Thompson
