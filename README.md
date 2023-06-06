@@ -1,3 +1,3 @@
-_**Fear grows in darkness; if you think there's a bogeyman around, turn on the light.**_
+_**To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.**_
 
-Dorothy Thompson
+The Buddha
