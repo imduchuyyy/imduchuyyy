@@ -1,3 +1,3 @@
-_**To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.**_
+_**What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.**_
 
 The Buddha
