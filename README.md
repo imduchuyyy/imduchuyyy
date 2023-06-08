@@ -1,3 +1,3 @@
-_**What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.**_
+_**We must learn our limits. We are all something, but none of us are everything.**_
 
-The Buddha
+Blaise Pascal
