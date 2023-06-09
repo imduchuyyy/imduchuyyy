@@ -1,3 +1,3 @@
-_**We must learn our limits. We are all something, but none of us are everything.**_
+_**When deeds and words are in accord, the whole world is transformed.**_
 
-Blaise Pascal
+Zhuang Zhou
