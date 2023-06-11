@@ -1,3 +1,3 @@
-_**Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.**_
+_**Imagination is the living power and prime agent of all human perception.**_
 
-Napoleon Hill
+Samuel Taylor Coleridge
