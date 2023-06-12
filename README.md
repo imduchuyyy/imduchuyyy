@@ -1,3 +1,3 @@
-_**Imagination is the living power and prime agent of all human perception.**_
+_**Our passion is our strength.**_
 
-Samuel Taylor Coleridge
+Billie Armstrong
