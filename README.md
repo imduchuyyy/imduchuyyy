@@ -1,3 +1,3 @@
-_**Our passion is our strength.**_
+_**Remember that a gesture of friendship, no matter how small, is always appreciated.**_
 
-Billie Armstrong
+H. Jackson Brown Jr.
