@@ -1,3 +1,3 @@
-_**Remember that a gesture of friendship, no matter how small, is always appreciated.**_
+_**There is a wisdom of the head, and a wisdom of the heart.**_
 
-H. Jackson Brown Jr.
+Charles Dickens
