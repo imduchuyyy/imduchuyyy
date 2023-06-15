@@ -1,3 +1,3 @@
-_**There is a wisdom of the head, and a wisdom of the heart.**_
+_**I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time.**_
 
-Charles Dickens
+Victoria Osteen
