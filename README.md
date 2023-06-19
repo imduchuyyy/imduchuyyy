@@ -1,3 +1,3 @@
-_**Let the beauty of what you love be what you do.**_
+_**The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.**_
 
-Rumi
+Henry David Thoreau
