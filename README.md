@@ -1,3 +1,3 @@
-_**A friend is someone who gives you total freedom to be yourself.**_
+_**The superior man is satisfied and composed; the mean man is always full of distress.**_
 
-Jim Morrison
+Confucius
