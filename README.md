@@ -1,3 +1,3 @@
-_**When you realize there is nothing lacking, the whole world belongs to you.**_
+_**Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius.**_
 
-Laozi
+Wolfgang Amadeus Mozart
