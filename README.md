@@ -1,3 +1,3 @@
-_**Skill to do comes of doing.**_
+_**The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.**_
 
-Ralph Waldo Emerson
+Peter Abelard
