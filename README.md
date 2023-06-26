@@ -1,3 +1,3 @@
-_**The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.**_
+_**Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.**_
 
-Peter Abelard
+Ted Williams
