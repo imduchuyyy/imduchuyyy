@@ -1,3 +1,3 @@
-_**Be as you wish to seem.**_
+_**Doing what you love is the cornerstone of having abundance in your life.**_
 
-Socrates
+Wayne Dyer
