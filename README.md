@@ -1,3 +1,3 @@
-_**Doing what you love is the cornerstone of having abundance in your life.**_
+_**To lead people walk behind them.**_
 
-Wayne Dyer
+Laozi
