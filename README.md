@@ -1,3 +1,3 @@
-_**To lead people walk behind them.**_
+_**Let us sacrifice our today so that our children can have a better tomorrow.**_
 
-Laozi
+A. P. J. Abdul Kalam
