@@ -1,3 +1,3 @@
-_**Let us sacrifice our today so that our children can have a better tomorrow.**_
+_**The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is.**_
 
-A. P. J. Abdul Kalam
+Winston Churchill
