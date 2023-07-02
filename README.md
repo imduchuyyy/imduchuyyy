@@ -1,3 +1,3 @@
-_**The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is.**_
+_**Friends are those rare people who ask how we are and then wait to hear the answer.**_
 
-Winston Churchill
+Ed Cunningham
