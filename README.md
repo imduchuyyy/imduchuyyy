@@ -1,3 +1,3 @@
-_**Friends are those rare people who ask how we are and then wait to hear the answer.**_
+_**Make the most of yourself, for that is all there is of you.**_
 
-Ed Cunningham
+Ralph Waldo Emerson
