@@ -1,3 +1,3 @@
-_**Make the most of yourself, for that is all there is of you.**_
+_**Friendship is like money, easier made than kept.**_
 
-Ralph Waldo Emerson
+Samuel Butler
