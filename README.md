@@ -1,3 +1,3 @@
-_**Friendship is like money, easier made than kept.**_
+_**To accomplish great things, we must dream as well as act.**_
 
-Samuel Butler
+Anatole France
