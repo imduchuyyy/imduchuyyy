@@ -1,3 +1,3 @@
-_**There is only one success: to be able to spend your life in your own way.**_
+_**Wisdom is oftentimes nearer when we stoop than when we soar.**_
 
-Christopher Morley
+William Wordsworth
