@@ -1,3 +1,3 @@
-_**Wisdom is oftentimes nearer when we stoop than when we soar.**_
+_**Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control.**_
 
-William Wordsworth
+Martin Luther King Jr.
