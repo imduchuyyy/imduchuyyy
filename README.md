@@ -1,3 +1,3 @@
-_**Always seek out the seed of triumph in every adversity.**_
+_**Do not go where the path may lead, go instead where there is no path and leave a trail.**_
 
-Og Mandino
+Ralph Waldo Emerson
