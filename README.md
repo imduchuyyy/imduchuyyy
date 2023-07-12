@@ -1,3 +1,3 @@
-_**Do not go where the path may lead, go instead where there is no path and leave a trail.**_
+_**As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.**_
 
-Ralph Waldo Emerson
+Joseph Prince
