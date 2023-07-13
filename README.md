@@ -1,3 +1,3 @@
-_**As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.**_
+_**Accept challenges, so that you may feel the exhilaration of victory.**_
 
-Joseph Prince
+George S. Patton
