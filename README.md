@@ -1,3 +1,3 @@
-_**Accept challenges, so that you may feel the exhilaration of victory.**_
+_**You are that vast thing that you see far, far off with great telescopes.**_
 
-George S. Patton
+Alan Watts
