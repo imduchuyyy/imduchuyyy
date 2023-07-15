@@ -1,3 +1,3 @@
-_**You are that vast thing that you see far, far off with great telescopes.**_
+_**Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.**_
 
-Alan Watts
+Bernice Reagon
