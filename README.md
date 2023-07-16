@@ -1,3 +1,3 @@
-_**Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.**_
+_**If you have a harem of 40 women, you never get to know any of them very well.**_
 
-Bernice Reagon
+Warren Buffett
