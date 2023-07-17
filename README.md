@@ -1,3 +1,3 @@
-_**If you have a harem of 40 women, you never get to know any of them very well.**_
+_**A good head and a good heart are always a formidable combination.**_
 
-Warren Buffett
+Nelson Mandela
