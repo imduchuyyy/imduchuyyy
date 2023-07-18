@@ -1,3 +1,3 @@
-_**A good head and a good heart are always a formidable combination.**_
+_**By living deeply in the present moment we can understand the past better and we can prepare for a better future.**_
 
-Nelson Mandela
+Thích Nhất Hạnh
