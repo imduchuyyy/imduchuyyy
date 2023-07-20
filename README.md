@@ -1,3 +1,3 @@
-_**Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.**_
+_**If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.**_
 
-Albert Schweitzer
+Epictetus
