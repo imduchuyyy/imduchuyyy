@@ -1,3 +1,3 @@
-_**If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.**_
+_**Nothing ever goes away until it has taught us what we need to know.**_
 
-Epictetus
+Pema Chödrön
