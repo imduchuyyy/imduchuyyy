@@ -1,3 +1,3 @@
-_**Nothing ever goes away until it has taught us what we need to know.**_
+_**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**_
 
-Pema Chödrön
+Sri Chinmoy
