@@ -1,3 +1,3 @@
-_**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**_
+_**When you come to the end of your rope, tie a knot and hang on.**_
 
-Sri Chinmoy
+Franklin D. Roosevelt
