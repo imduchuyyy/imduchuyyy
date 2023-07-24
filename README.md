@@ -1,3 +1,3 @@
-_**When you come to the end of your rope, tie a knot and hang on.**_
+_**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**_
 
-Franklin D. Roosevelt
+Wayne Dyer
