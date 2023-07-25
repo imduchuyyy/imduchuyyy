@@ -1,3 +1,3 @@
-_**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**_
+_**If you want to kill any idea in the world, get a committee working on it.**_
 
-Wayne Dyer
+Charles F. Kettering
