@@ -1,3 +1,3 @@
-_**He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.**_
+_**The universe is transformation; our life is what our thoughts make it.**_
 
-Epictetus
+Marcus Aurelius
