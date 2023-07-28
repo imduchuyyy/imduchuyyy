@@ -1,3 +1,3 @@
-_**The universe is transformation; our life is what our thoughts make it.**_
+_**Three things cannot be long hidden: the sun, the moon, and the truth.**_
 
-Marcus Aurelius
+The Buddha
