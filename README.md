@@ -1,3 +1,3 @@
-_**Three things cannot be long hidden: the sun, the moon, and the truth.**_
+_**Thought is the blossom; language the bud; action the fruit behind it.**_
 
-The Buddha
+Ralph Waldo Emerson
