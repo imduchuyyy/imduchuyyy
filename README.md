@@ -1,3 +1,3 @@
-_**Thought is the blossom; language the bud; action the fruit behind it.**_
+_**Rejoicing in our joy, not suffering over our suffering, makes someone a friend.**_
 
-Ralph Waldo Emerson
+Friedrich Nietzsche
