@@ -1,3 +1,3 @@
-_**Rejoicing in our joy, not suffering over our suffering, makes someone a friend.**_
+_**All that we see or seem is but a dream within a dream.**_
 
-Friedrich Nietzsche
+Edgar Allan Poe
