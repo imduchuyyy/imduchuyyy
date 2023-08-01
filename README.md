@@ -1,3 +1,3 @@
-_**All that we see or seem is but a dream within a dream.**_
+_**You've got to go out on a limb sometimes because that's where the fruit is.**_
 
-Edgar Allan Poe
+Will Rogers
