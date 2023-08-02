@@ -1,3 +1,3 @@
-_**You've got to go out on a limb sometimes because that's where the fruit is.**_
+_**Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.**_
 
-Will Rogers
+Lord Byron
