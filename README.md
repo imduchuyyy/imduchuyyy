@@ -1,3 +1,3 @@
-_**Friendship needs no words - it is solitude delivered from the anguish of loneliness.**_
+_**What you do today can improve all your tomorrows.**_
 
-Dag Hammarskjöld
+Ralph Marston
