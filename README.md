@@ -1,3 +1,3 @@
-_**What you do today can improve all your tomorrows.**_
+_**I never worry about action, but only inaction.**_
 
-Ralph Marston
+Winston Churchill
