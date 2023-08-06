@@ -1,3 +1,3 @@
-_**I never worry about action, but only inaction.**_
+_**Let none find fault with others; let none see the omissions and commissions of others. But let one see one's own acts, done and undone.**_
 
-Winston Churchill
+The Buddha
