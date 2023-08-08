@@ -1,3 +1,3 @@
-_**Let none find fault with others; let none see the omissions and commissions of others. But let one see one's own acts, done and undone.**_
+_**A man sees in the world what he carries in his heart.**_
 
-The Buddha
+Johann Wolfgang von Goethe
