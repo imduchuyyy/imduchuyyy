@@ -1,3 +1,3 @@
-_**The cause is hidden. The effect is visible to all.**_
+_**The greatest part of our happiness depends on our dispositions, not our circumstances.**_
 
-Ovid
+Martha Washington
