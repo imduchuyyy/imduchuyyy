@@ -1,3 +1,3 @@
-_**The greatest part of our happiness depends on our dispositions, not our circumstances.**_
+_**Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.**_
 
-Martha Washington
+Richard Bach
