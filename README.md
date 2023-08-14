@@ -1,3 +1,3 @@
-_**Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.**_
+_**He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.**_
 
-Richard Bach
+William C. Menninger
