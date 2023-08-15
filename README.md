@@ -1,3 +1,3 @@
-_**He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.**_
+_**Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.**_
 
-William C. Menninger
+Alan Cohen
