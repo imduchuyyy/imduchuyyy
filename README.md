@@ -1,3 +1,3 @@
-_**Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.**_
+_**An invasion of armies can be resisted, but not an idea whose time has come.**_
 
-Alan Cohen
+Victor Hugo
