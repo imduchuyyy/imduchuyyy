@@ -1,3 +1,3 @@
-_**Always bear in mind that your own resolution to succeed is more important than any one thing.**_
+_**It is with words as with sunbeams. The more they are condensed, the deeper they burn.**_
 
-Abraham Lincoln
+Robert Southey
