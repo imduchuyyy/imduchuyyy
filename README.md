@@ -1,3 +1,3 @@
-_**It is with words as with sunbeams. The more they are condensed, the deeper they burn.**_
+_**All our knowledge has its origins in our perceptions.**_
 
-Robert Southey
+Leonardo da Vinci
