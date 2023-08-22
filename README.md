@@ -1,3 +1,3 @@
-_**Let the future tell the truth and evaluate each one according to his work and accomplishments. The present is theirs; the future, for which I have really worked, is mine.**_
+_**And I love that even in the toughest moments, when we're all sweating it - when we're worried that the bill won't pass, and it seems like all is lost - Barack never lets himself get distracted by the chatter and the noise. Just like his grandmother, he just keeps getting up and moving forward... with patience and wisdom, and courage and grace.**_
 
-Nikola Tesla
+Michelle Obama
