@@ -1,3 +1,3 @@
-_**Wisdom is the supreme part of happiness.**_
+_**Give whatever you are doing and whoever you are with the gift of your attention.**_
 
-Sophocles
+Jim Rohn
