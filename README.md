@@ -1,3 +1,3 @@
-_**Give whatever you are doing and whoever you are with the gift of your attention.**_
+_**When in doubt, tell the truth.**_
 
-Jim Rohn
+Mark Twain
