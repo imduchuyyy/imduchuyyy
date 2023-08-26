@@ -1,3 +1,3 @@
-_**When in doubt, tell the truth.**_
+_**Think for yourselves and let others enjoy the privilege to do so too.**_
 
-Mark Twain
+Voltaire
