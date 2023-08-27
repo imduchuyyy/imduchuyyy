@@ -1,3 +1,3 @@
-_**Think for yourselves and let others enjoy the privilege to do so too.**_
+_**The more man meditates upon good thoughts, the better will be his world and the world at large.**_
 
-Voltaire
+Confucius
