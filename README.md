@@ -1,3 +1,3 @@
-_**The more man meditates upon good thoughts, the better will be his world and the world at large.**_
+_**Keep your face always toward the sunshine - and shadows will fall behind you.**_
 
-Confucius
+Walt Whitman
