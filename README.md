@@ -1,3 +1,3 @@
-_**If we all did the things we are capable of doing, we would literally astound ourselves.**_
+_**Computers are useless. They can only give you answers.**_
 
-Thomas Edison
+Pablo Picasso
