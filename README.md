@@ -1,3 +1,3 @@
-_**Computers are useless. They can only give you answers.**_
+_**When watching after yourself, you watch after others. When watching after others, you watch after yourself.**_
 
-Pablo Picasso
+The Buddha
