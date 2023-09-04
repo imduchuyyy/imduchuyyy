@@ -1,3 +1,3 @@
-_**When watching after yourself, you watch after others. When watching after others, you watch after yourself.**_
+_**Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.**_
 
-The Buddha
+Elie Wiesel
