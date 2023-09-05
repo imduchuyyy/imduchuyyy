@@ -1,3 +1,3 @@
-_**Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.**_
+_**The pine stays green in winter... wisdom in hardship.**_
 
-Elie Wiesel
+Norman Douglas
