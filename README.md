@@ -1,3 +1,3 @@
-_**The pine stays green in winter... wisdom in hardship.**_
+_**Attitude is a little thing that makes a big difference.**_
 
-Norman Douglas
+Winston Churchill
