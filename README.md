@@ -1,3 +1,3 @@
-_**Attitude is a little thing that makes a big difference.**_
+_**You'll see it when you believe it.**_
 
-Winston Churchill
+Wayne Dyer
