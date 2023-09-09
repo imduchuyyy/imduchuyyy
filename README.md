@@ -1,3 +1,3 @@
-_**If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him.**_
+_**Life is what happens while you are making other plans.**_
 
-Ralph Waldo Emerson
+John Lennon
