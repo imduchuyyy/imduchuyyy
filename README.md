@@ -1,3 +1,3 @@
-_**Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.**_
+_**If you aren't going all the way, why go at all?**_
 
-Sidney Hook
+Joe Namath
