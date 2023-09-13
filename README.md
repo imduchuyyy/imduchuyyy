@@ -1,3 +1,3 @@
-_**To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float.**_
+_**Nothing strengthens authority so much as silence.**_
 
-Alan Watts
+Leonardo da Vinci
