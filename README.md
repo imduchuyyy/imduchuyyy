@@ -1,3 +1,3 @@
-_**Nothing strengthens authority so much as silence.**_
+_**Do not turn back when you are just at the goal.**_
 
-Leonardo da Vinci
+Publilius Syrus
