@@ -1,3 +1,3 @@
-_**Do not turn back when you are just at the goal.**_
+_**Commitment is an act, not a word.**_
 
-Publilius Syrus
+Jean-Paul Sartre
