@@ -1,3 +1,3 @@
-_**Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.**_
+_**To get the full value of joy you must have someone to divide it with.**_
 
-Henry Reed
+Mark Twain
