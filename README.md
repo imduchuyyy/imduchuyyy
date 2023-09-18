@@ -1,3 +1,3 @@
-_**To get the full value of joy you must have someone to divide it with.**_
+_**Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise?**_
 
-Mark Twain
+Confucius
