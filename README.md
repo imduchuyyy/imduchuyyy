@@ -1,3 +1,3 @@
-_**Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise?**_
+_**You are never given a wish without also being given the power to make it come true. You may have to work for it, however.**_
 
-Confucius
+Richard Bach
