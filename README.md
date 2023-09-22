@@ -1,3 +1,3 @@
-_**A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.**_
+_**Every man takes the limits of his own field of vision for the limits of the world.**_
 
-Horace
+Arthur Schopenhauer
