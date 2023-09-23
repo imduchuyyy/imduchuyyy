@@ -1,3 +1,3 @@
-_**Every man takes the limits of his own field of vision for the limits of the world.**_
+_**No snowflake in an avalanche ever feels responsible.**_
 
-Arthur Schopenhauer
+Voltaire
