@@ -1,3 +1,3 @@
-_**No snowflake in an avalanche ever feels responsible.**_
+_**Nothing strengthens authority so much as silence.**_
 
-Voltaire
+Leonardo da Vinci
