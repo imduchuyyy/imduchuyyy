@@ -1,3 +1,3 @@
-_**Nothing strengthens authority so much as silence.**_
+_**Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.**_
 
-Leonardo da Vinci
+Edith Wharton
