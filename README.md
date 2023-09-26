@@ -1,3 +1,3 @@
-_**Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.**_
+_**Try not to become a man of success, but rather try to become a man of value.**_
 
-Edith Wharton
+Albert Einstein
