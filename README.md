@@ -1,3 +1,3 @@
-_**Try not to become a man of success, but rather try to become a man of value.**_
+_**Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.**_
 
-Albert Einstein
+Steve Jobs
