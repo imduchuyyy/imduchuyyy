@@ -1,3 +1,3 @@
-_**Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.**_
+_**Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.**_
 
-Steve Jobs
+Robert Fulghum
