@@ -1,3 +1,3 @@
-_**Not engaging in ignorance is wisdom.**_
+_**It has long been an axiom of mine that the little things are infinitely the most important.**_
 
-Bodhidharma
+Arthur Conan Doyle
