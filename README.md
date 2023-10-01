@@ -1,3 +1,3 @@
-_**It has long been an axiom of mine that the little things are infinitely the most important.**_
+_**Do you want to know who you are? Don't ask. Act! Action will delineate and define you.**_
 
-Arthur Conan Doyle
+Thomas Jefferson
