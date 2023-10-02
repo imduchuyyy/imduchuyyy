@@ -1,3 +1,3 @@
-_**Do you want to know who you are? Don't ask. Act! Action will delineate and define you.**_
+_**The least of things with a meaning is worth more in life than the greatest of things without it.**_
 
-Thomas Jefferson
+Carl Jung
