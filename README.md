@@ -1,3 +1,3 @@
-_**The least of things with a meaning is worth more in life than the greatest of things without it.**_
+_**Communications tools don't get socially interesting until they get technologically boring.**_
 
-Carl Jung
+Clay Shirky
