@@ -1,3 +1,3 @@
-_**Communications tools don't get socially interesting until they get technologically boring.**_
+_**Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.**_
 
-Clay Shirky
+Horace
