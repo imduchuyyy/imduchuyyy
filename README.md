@@ -1,3 +1,3 @@
-_**Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself.**_
+_**Friendship is an arrangement by which we undertake to exchange small favors for big ones.**_
 
-Kahlil Gibran
+Montesquieu
