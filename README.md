@@ -1,3 +1,3 @@
-_**Friendship is an arrangement by which we undertake to exchange small favors for big ones.**_
+_**Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.**_
 
-Montesquieu
+Theodore Isaac Rubin
