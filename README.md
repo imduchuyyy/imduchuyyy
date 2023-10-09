@@ -1,3 +1,3 @@
-_**Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.**_
+_**This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.**_
 
-Theodore Isaac Rubin
+Don DeLillo
