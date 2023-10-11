@@ -1,3 +1,3 @@
-_**Marriage: A friendship recognized by the police.**_
+_**And as we let our own light shine, we unconsciously give other people permission to do the same.**_
 
-Robert Louis Stevenson
+Nelson Mandela
