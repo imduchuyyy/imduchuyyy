@@ -1,3 +1,3 @@
-_**And as we let our own light shine, we unconsciously give other people permission to do the same.**_
+_**A man cannot be said to succeed in this life who does not satisfy one friend.**_
 
-Nelson Mandela
+Henry David Thoreau
