@@ -1,3 +1,3 @@
-_**A man cannot be said to succeed in this life who does not satisfy one friend.**_
+_**Efficiency is doing things right; effectiveness is doing the right things.**_
 
-Henry David Thoreau
+Peter Drucker
