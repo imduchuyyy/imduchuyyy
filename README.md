@@ -1,3 +1,3 @@
-_**Efficiency is doing things right; effectiveness is doing the right things.**_
+_**To listen well is as powerful a means of communication and influence as to talk well.**_
 
-Peter Drucker
+John Marshall
