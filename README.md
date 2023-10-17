@@ -1,3 +1,3 @@
-_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
+_**Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.**_
 
-François de La Rochefoucauld
+Laozi
