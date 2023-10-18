@@ -1,3 +1,3 @@
-_**Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.**_
+_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
 
-Laozi
+Mother Teresa
