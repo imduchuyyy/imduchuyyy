@@ -1,3 +1,3 @@
-_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
+_**Keep yourself to the sunshine and you cannot see the shadow.**_
 
-Mother Teresa
+Helen Keller
