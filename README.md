@@ -1,3 +1,3 @@
-_**Keep yourself to the sunshine and you cannot see the shadow.**_
+_**Error is discipline through which we advance.**_
 
-Helen Keller
+William Ellery Channing
