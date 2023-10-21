@@ -1,3 +1,3 @@
-_**Error is discipline through which we advance.**_
+_**My friends are my estate.**_
 
-William Ellery Channing
+Emily Dickinson
