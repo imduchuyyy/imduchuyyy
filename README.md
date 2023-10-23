@@ -1,3 +1,3 @@
-_**Let the future tell the truth and evaluate each one according to his work and accomplishments. The present is theirs; the future, for which I have really worked, is mine.**_
+_**Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?**_
 
-Nikola Tesla
+Friedrich Nietzsche
