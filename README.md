@@ -1,3 +1,3 @@
-_**Nobody will believe in you unless you believe in yourself.**_
+_**If you can dream it, you can do it.**_
 
-Liberace
+Walt Disney
