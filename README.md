@@ -1,3 +1,3 @@
-_**If you can dream it, you can do it.**_
+_**Love is the flower you've got to let grow.**_
 
-Walt Disney
+John Lennon
