@@ -1,3 +1,3 @@
-_**Love is the flower you've got to let grow.**_
+_**What other people may find in poetry or art museums, I find in the flight of a good drive.**_
 
-John Lennon
+Arnold Palmer
