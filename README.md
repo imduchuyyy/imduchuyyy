@@ -1,3 +1,3 @@
-_**What other people may find in poetry or art museums, I find in the flight of a good drive.**_
+_**All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.**_
 
-Arnold Palmer
+Anne Brontë
