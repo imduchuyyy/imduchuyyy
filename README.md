@@ -1,3 +1,3 @@
-_**All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.**_
+_**Men are disturbed not by things, but by the view which they take of them.**_
 
-Anne Brontë
+Epictetus
