@@ -1,3 +1,3 @@
-_**Men are disturbed not by things, but by the view which they take of them.**_
+_**Kind words do not cost much. Yet they accomplish much.**_
 
-Epictetus
+Blaise Pascal
