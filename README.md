@@ -1,3 +1,3 @@
-_**Kind words do not cost much. Yet they accomplish much.**_
+_**True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.**_
 
-Blaise Pascal
+Daisaku Ikeda
