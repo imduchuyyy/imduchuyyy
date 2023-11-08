@@ -1,3 +1,3 @@
-_**True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.**_
+_**We are made wise not by the recollection of our past, but by the responsibility for our future.**_
 
-Daisaku Ikeda
+Bernard Shaw
