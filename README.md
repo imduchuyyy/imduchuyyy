@@ -1,3 +1,3 @@
-_**Nothing strengthens authority so much as silence.**_
+_**You yourself must strive. The Buddhas only point the way.**_
 
-Leonardo da Vinci
+The Buddha
