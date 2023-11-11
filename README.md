@@ -1,3 +1,3 @@
-_**You yourself must strive. The Buddhas only point the way.**_
+_**The energy of the mind is the essence of life.**_
 
-The Buddha
+Aristotle
