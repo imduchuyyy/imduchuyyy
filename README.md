@@ -1,3 +1,3 @@
-_**The energy of the mind is the essence of life.**_
+_**Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.**_
 
-Aristotle
+Carl Jung
