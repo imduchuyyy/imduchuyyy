@@ -1,3 +1,3 @@
-_**Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.**_
+_**I have always thought the actions of men the best interpreters of their thoughts.**_
 
-Carl Jung
+John Locke
