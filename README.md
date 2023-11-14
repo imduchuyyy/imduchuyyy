@@ -1,3 +1,3 @@
-_**I have always thought the actions of men the best interpreters of their thoughts.**_
+_**On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.**_
 
-John Locke
+Edward Young
