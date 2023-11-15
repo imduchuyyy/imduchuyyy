@@ -1,3 +1,3 @@
-_**On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.**_
+_**Freedom is what you do with what's been done to you.**_
 
-Edward Young
+Jean-Paul Sartre
