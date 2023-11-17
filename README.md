@@ -1,3 +1,3 @@
-_**All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.**_
+_**All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill.**_
 
-Kathleen Norris
+The Buddha
