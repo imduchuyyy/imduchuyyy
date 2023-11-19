@@ -1,3 +1,3 @@
-_**Ethics change with technology.**_
+_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
 
-Larry Niven
+Napoleon Hill
