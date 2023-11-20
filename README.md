@@ -1,3 +1,3 @@
-_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
+_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
 
-Napoleon Hill
+Norman Cousins
