@@ -1,3 +1,3 @@
-_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
+_**Liberty, taking the word in its concrete sense, consists in the ability to choose.**_
 
-Norman Cousins
+Simone Weil
