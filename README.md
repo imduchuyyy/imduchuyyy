@@ -1,3 +1,3 @@
-_**Liberty, taking the word in its concrete sense, consists in the ability to choose.**_
+_**No man can succeed in a line of endeavor which he does not like.**_
 
-Simone Weil
+Napoleon Hill
