@@ -1,3 +1,3 @@
-_**No man can succeed in a line of endeavor which he does not like.**_
+_**Opportunity is missed by most people because it is dressed in overalls and looks like work.**_
 
-Napoleon Hill
+Thomas Edison
