@@ -1,3 +1,3 @@
-_**Opportunity is missed by most people because it is dressed in overalls and looks like work.**_
+_**A goal is a dream with a deadline.**_
 
-Thomas Edison
+Napoleon Hill
