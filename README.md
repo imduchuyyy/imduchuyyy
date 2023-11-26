@@ -1,3 +1,3 @@
-_**Our passion is our strength.**_
+_**Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.**_
 
-Billie Armstrong
+The Buddha
