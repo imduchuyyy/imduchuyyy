@@ -1,3 +1,3 @@
-_**Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.**_
+_**Everything you can imagine is real.**_
 
-The Buddha
+Pablo Picasso
