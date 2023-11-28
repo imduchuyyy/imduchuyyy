@@ -1,3 +1,3 @@
-_**Everything you can imagine is real.**_
+_**Light tomorrow with today!**_
 
-Pablo Picasso
+Elizabeth Browning
