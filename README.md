@@ -1,3 +1,3 @@
-_**Light tomorrow with today!**_
+_**To see things in the seed, that is genius.**_
 
-Elizabeth Browning
+Laozi
