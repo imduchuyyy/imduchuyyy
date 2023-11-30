@@ -1,3 +1,3 @@
-_**To see things in the seed, that is genius.**_
+_**One that desires to excel should endeavor in those things that are in themselves most excellent.**_
 
-Laozi
+Epictetus
