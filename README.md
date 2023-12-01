@@ -1,3 +1,3 @@
-_**One that desires to excel should endeavor in those things that are in themselves most excellent.**_
+_**We could never learn to be brave and patient if there were only joy in the world.**_
 
-Epictetus
+Helen Keller
