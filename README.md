@@ -1,3 +1,3 @@
-_**Let us always meet each other with smile, for the smile is the beginning of love.**_
+_**Always be smarter than the people who hire you.**_
 
-Mother Teresa
+Lena Horne
