@@ -1,3 +1,3 @@
-_**Always be smarter than the people who hire you.**_
+_**If you love life, don't waste time, for time is what life is made up of.**_
 
-Lena Horne
+Bruce Lee
