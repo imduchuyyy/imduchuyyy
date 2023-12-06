@@ -1,3 +1,3 @@
-_**If you love life, don't waste time, for time is what life is made up of.**_
+_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
 
-Bruce Lee
+Cory Doctorow
