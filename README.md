@@ -1,3 +1,3 @@
-_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
+_**This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.**_
 
-Cory Doctorow
+Thomas Carlyle
