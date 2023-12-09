@@ -1,3 +1,3 @@
-_**Those who cling to perceptions and views wander the world offending people.**_
+_**You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.**_
 
-The Buddha
+Alan Watts
