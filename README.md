@@ -1,3 +1,3 @@
-_**Be slow of tongue and quick of eye.**_
+_**Appearances are often deceiving.**_
 
-Miguel de Cervantes
+Aesop
