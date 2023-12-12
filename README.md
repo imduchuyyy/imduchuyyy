@@ -1,3 +1,3 @@
-_**Appearances are often deceiving.**_
+_**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**_
 
-Aesop
+Samuel Beckett
