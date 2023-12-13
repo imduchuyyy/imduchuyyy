@@ -1,3 +1,3 @@
-_**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**_
+_**Numberless are the worlds wonders, but none more wonderful than man.**_
 
-Samuel Beckett
+Sophocles
