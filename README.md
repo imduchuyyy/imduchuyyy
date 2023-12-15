@@ -1,3 +1,3 @@
-_**Habit, if not resisted, soon becomes necessity.**_
+_**Those that know, do. Those that understand, teach.**_
 
-Augustine of Hippo
+Aristotle
