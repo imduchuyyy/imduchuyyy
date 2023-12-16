@@ -1,3 +1,3 @@
-_**Those that know, do. Those that understand, teach.**_
+_**Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.**_
 
-Aristotle
+Gordon Hinckley
