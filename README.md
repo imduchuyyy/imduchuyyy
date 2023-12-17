@@ -1,3 +1,3 @@
-_**Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.**_
+_**How far that little candle throws its beams! So shines a good deed in a naughty world.**_
 
-Gordon Hinckley
+William Shakespeare
