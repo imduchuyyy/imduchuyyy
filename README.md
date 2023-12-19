@@ -1,3 +1,3 @@
-_**Minds are like parachutes. They only function when open.**_
+_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
 
-Thomas Dewar
+Cory Doctorow
