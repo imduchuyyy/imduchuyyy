@@ -1,3 +1,3 @@
-_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
+_**The only way to have a friend is to be one.**_
 
-Cory Doctorow
+Ralph Waldo Emerson
