@@ -1,3 +1,3 @@
-_**The only way to have a friend is to be one.**_
+_**Nothing but heaven itself is better than a friend who is really a friend.**_
 
-Ralph Waldo Emerson
+Plautus
