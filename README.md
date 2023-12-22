@@ -1,3 +1,3 @@
-_**Nothing but heaven itself is better than a friend who is really a friend.**_
+_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
 
-Plautus
+Winston Churchill
