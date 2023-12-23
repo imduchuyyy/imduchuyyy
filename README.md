@@ -1,3 +1,3 @@
-_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
+_**And as we let our own light shine, we unconsciously give other people permission to do the same.**_
 
-Winston Churchill
+Nelson Mandela
