@@ -1,3 +1,3 @@
-_**And as we let our own light shine, we unconsciously give other people permission to do the same.**_
+_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
 
-Nelson Mandela
+Francis of Assisi
