@@ -1,3 +1,3 @@
-_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
+_**Whenever something negative happens to you, there is a deep lesson concealed within it.**_
 
-Francis of Assisi
+Eckhart Tolle
