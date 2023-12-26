@@ -1,3 +1,3 @@
-_**Whenever something negative happens to you, there is a deep lesson concealed within it.**_
+_**Life is a travelling to the edge of knowledge, then a leap taken.**_
 
-Eckhart Tolle
+Laurence J. Peter
