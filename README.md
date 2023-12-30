@@ -1,3 +1,3 @@
-_**Life is a succession of lessons, which must be lived to be understood.**_
+_**It takes courage to grow up and become who you really are.**_
 
-Ralph Waldo Emerson
+E. E. Cummings
