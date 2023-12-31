@@ -1,3 +1,3 @@
-_**It takes courage to grow up and become who you really are.**_
+_**Friendship is one mind in two bodies.**_
 
-E. E. Cummings
+Mencius
