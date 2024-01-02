@@ -1,3 +1,3 @@
-_**The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries.**_
+_**Friendship without self-interest is one of the rare and beautiful things of life.**_
 
-Winston Churchill
+James F. Byrnes
