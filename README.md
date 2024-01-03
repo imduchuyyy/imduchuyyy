@@ -1,3 +1,3 @@
-_**Friendship without self-interest is one of the rare and beautiful things of life.**_
+_**The pine stays green in winter... wisdom in hardship.**_
 
-James F. Byrnes
+Norman Douglas
