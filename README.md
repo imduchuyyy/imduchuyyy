@@ -1,3 +1,3 @@
-_**The pine stays green in winter... wisdom in hardship.**_
+_**Communications tools don't get socially interesting until they get technologically boring.**_
 
-Norman Douglas
+Clay Shirky
