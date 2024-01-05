@@ -1,3 +1,3 @@
-_**Communications tools don't get socially interesting until they get technologically boring.**_
+_**Love is the attempt to form a friendship inspired by beauty.**_
 
-Clay Shirky
+Cicero
