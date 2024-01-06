@@ -1,3 +1,3 @@
-_**Love is the attempt to form a friendship inspired by beauty.**_
+_**Wise men make more opportunities than they find.**_
 
-Cicero
+Francis Bacon
