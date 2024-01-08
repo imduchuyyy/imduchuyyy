@@ -1,3 +1,3 @@
-_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
+_**I never teach my pupils. I only attempt to provide the conditions in which they can learn.**_
 
-William Lyon Phelps
+Albert Einstein
