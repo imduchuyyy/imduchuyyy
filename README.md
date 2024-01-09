@@ -1,3 +1,3 @@
-_**I never teach my pupils. I only attempt to provide the conditions in which they can learn.**_
+_**If you accept the expectations of others, especially negative ones, then you never will change the outcome.**_
 
-Albert Einstein
+Michael Jordan
