@@ -1,3 +1,3 @@
-_**If you accept the expectations of others, especially negative ones, then you never will change the outcome.**_
+_**I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.**_
 
-Michael Jordan
+Leonardo da Vinci
