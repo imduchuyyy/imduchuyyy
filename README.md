@@ -1,3 +1,3 @@
-_**Remember that failure is an event, not a person.**_
+_**If you can dream it, you can do it.**_
 
-Zig Ziglar
+Walt Disney
