@@ -1,3 +1,3 @@
-_**The future is completely open, and we are writing it moment to moment.**_
+_**I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress.**_
 
-Pema Chödrön
+Elizabeth Montagu
