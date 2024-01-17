@@ -1,3 +1,3 @@
-_**I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress.**_
+_**This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.**_
 
-Elizabeth Montagu
+Thomas Carlyle
