@@ -1,3 +1,3 @@
-_**This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.**_
+_**A good plan violently executed now is better than a perfect plan executed next week.**_
 
-Thomas Carlyle
+George S. Patton
