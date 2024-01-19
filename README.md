@@ -1,3 +1,3 @@
-_**A good plan violently executed now is better than a perfect plan executed next week.**_
+_**Knowledge is proud that it knows so much; wisdom is humble that it knows no more.**_
 
-George S. Patton
+William Cowper
