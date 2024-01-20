@@ -1,3 +1,3 @@
-_**Knowledge is proud that it knows so much; wisdom is humble that it knows no more.**_
+_**I believe that we are fundamentally the same and have the same basic potential.**_
 
-William Cowper
+Dalai Lama
