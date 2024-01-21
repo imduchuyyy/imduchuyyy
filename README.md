@@ -1,3 +1,3 @@
-_**I believe that we are fundamentally the same and have the same basic potential.**_
+_**Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.**_
 
-Dalai Lama
+Ted Williams
