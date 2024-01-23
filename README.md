@@ -1,3 +1,3 @@
-_**Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.**_
+_**Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.**_
 
-Blaise Pascal
+Kahlil Gibran
