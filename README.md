@@ -1,3 +1,3 @@
-_**Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.**_
+_**The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart.**_
 
-Kahlil Gibran
+Helen Keller
