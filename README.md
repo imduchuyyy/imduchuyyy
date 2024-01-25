@@ -1,3 +1,3 @@
-_**The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart.**_
+_**Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.**_
 
-Helen Keller
+Benjamin Franklin
