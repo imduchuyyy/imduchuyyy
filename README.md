@@ -1,3 +1,3 @@
-_**Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.**_
+_**Only when we are no longer afraid do we begin to live.**_
 
-Benjamin Franklin
+Dorothy Thompson
