@@ -1,3 +1,3 @@
-_**Only when we are no longer afraid do we begin to live.**_
+_**Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.**_
 
-Dorothy Thompson
+Nathaniel Hawthorne
