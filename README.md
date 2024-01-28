@@ -1,3 +1,3 @@
-_**Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.**_
+_**One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.**_
 
-Nathaniel Hawthorne
+Brooks Adams
