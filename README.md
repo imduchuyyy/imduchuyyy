@@ -1,3 +1,3 @@
-_**One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.**_
+_**Before God we are all equally wise - and equally foolish.**_
 
-Brooks Adams
+Albert Einstein
