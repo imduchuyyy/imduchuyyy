@@ -1,3 +1,3 @@
-_**Before God we are all equally wise - and equally foolish.**_
+_**Work for something because it is good, not just because it stands a chance to succeed.**_
 
-Albert Einstein
+Václav Havel
