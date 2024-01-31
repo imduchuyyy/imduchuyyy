@@ -1,3 +1,3 @@
-_**Work for something because it is good, not just because it stands a chance to succeed.**_
+_**TV and the Internet are good because they keep stupid people from spending too much time out in public.**_
 
-Václav Havel
+Douglas Coupland
