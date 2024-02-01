@@ -1,3 +1,3 @@
-_**TV and the Internet are good because they keep stupid people from spending too much time out in public.**_
+_**The truth of the matter is that you always know the right thing to do. The hard part is doing it.**_
 
-Douglas Coupland
+Norman Schwarzkopf
