@@ -1,3 +1,3 @@
-_**The truth of the matter is that you always know the right thing to do. The hard part is doing it.**_
+_**If you only have a hammer, you tend to see every problem as a nail.**_
 
-Norman Schwarzkopf
+Abraham Maslow
