@@ -1,3 +1,3 @@
-_**True friends stab you in the front.**_
+_**Success is getting what you want. Happiness is wanting what you get.**_
 
-Oscar Wilde
+Dale Carnegie
