@@ -1,3 +1,3 @@
-_**Success is getting what you want. Happiness is wanting what you get.**_
+_**The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.**_
 
-Dale Carnegie
+Isaac Asimov
