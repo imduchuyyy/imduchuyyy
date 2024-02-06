@@ -1,3 +1,3 @@
-_**The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.**_
+_**Meaning is not what you start with but what you end up with.**_
 
-Isaac Asimov
+Peter Elbow
