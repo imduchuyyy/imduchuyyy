@@ -1,3 +1,3 @@
-_**Meaning is not what you start with but what you end up with.**_
+_**Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.**_
 
-Peter Elbow
+John Wooden
