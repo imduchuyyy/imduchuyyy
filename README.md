@@ -1,3 +1,3 @@
-_**Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.**_
+_**It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.**_
 
-John Wooden
+Max Planck
