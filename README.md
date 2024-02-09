@@ -1,3 +1,3 @@
-_**It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.**_
+_**We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.**_
 
-Max Planck
+Stephen Covey
