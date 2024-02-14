@@ -1,3 +1,3 @@
-_**We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.**_
+_**It is not only for what we do that we are held responsible, but also for what we do not do.**_
 
-Stephen Covey
+Molière
