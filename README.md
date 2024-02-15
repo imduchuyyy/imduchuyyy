@@ -1,3 +1,3 @@
-_**It is not only for what we do that we are held responsible, but also for what we do not do.**_
+_**Walking with a friend in the dark is better than walking alone in the light.**_
 
-Molière
+Helen Keller
