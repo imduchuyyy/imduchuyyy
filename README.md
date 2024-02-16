@@ -1,3 +1,3 @@
-_**Walking with a friend in the dark is better than walking alone in the light.**_
+_**To command is to serve, nothing more and nothing less.**_
 
-Helen Keller
+André Malraux
