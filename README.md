@@ -1,3 +1,3 @@
-_**To command is to serve, nothing more and nothing less.**_
+_**Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.**_
 
-André Malraux
+Billy Wilder
