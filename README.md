@@ -1,3 +1,3 @@
-_**Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.**_
+_**The greatest good you can do for another is not just share your riches but reveal to them their own.**_
 
-Billy Wilder
+Benjamin Disraeli
