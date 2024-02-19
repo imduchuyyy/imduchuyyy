@@ -1,3 +1,3 @@
-_**The greatest good you can do for another is not just share your riches but reveal to them their own.**_
+_**I can't listen to that much Wagner. I start getting the urge to conquer Poland.**_
 
-Benjamin Disraeli
+Woody Allen
