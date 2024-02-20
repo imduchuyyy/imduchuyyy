@@ -1,3 +1,3 @@
-_**I can't listen to that much Wagner. I start getting the urge to conquer Poland.**_
+_**I can, therefore I am.**_
 
-Woody Allen
+Simone Weil
