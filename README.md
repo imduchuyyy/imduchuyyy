@@ -1,3 +1,3 @@
-_**I can, therefore I am.**_
+_**As we are liberated from our own fear, our presence automatically liberates others.**_
 
-Simone Weil
+Nelson Mandela
