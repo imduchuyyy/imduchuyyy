@@ -1,3 +1,3 @@
-_**As we are liberated from our own fear, our presence automatically liberates others.**_
+_**Quality is never an accident; it is always the result of intelligent effort.**_
 
-Nelson Mandela
+John Ruskin
