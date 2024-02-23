@@ -1,3 +1,3 @@
-_**Quality is never an accident; it is always the result of intelligent effort.**_
+_**Happiness is found in doing, not merely possessing.**_
 
-John Ruskin
+Napoleon Hill
