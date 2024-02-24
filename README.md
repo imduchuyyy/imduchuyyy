@@ -1,3 +1,3 @@
-_**Happiness is found in doing, not merely possessing.**_
+_**We've got to have a dream if we are going to make a dream come true.**_
 
-Napoleon Hill
+Walt Disney
