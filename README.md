@@ -1,3 +1,3 @@
-_**Quality is not an act; it is a habit.**_
+_**May our hearts garden of awakening bloom with hundreds of flowers.**_
 
-Aristotle
+Thích Nhất Hạnh
