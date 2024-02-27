@@ -1,3 +1,3 @@
-_**May our hearts garden of awakening bloom with hundreds of flowers.**_
+_**Imagination rules the world.**_
 
-Thích Nhất Hạnh
+Napoleon
