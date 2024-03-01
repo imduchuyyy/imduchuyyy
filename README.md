@@ -1,3 +1,3 @@
-_**All that we see or seem is but a dream within a dream.**_
+_**How many legs does a dog have if you call his tail a leg? Four. Saying that a tail is a leg doesn't make it a leg.**_
 
-Edgar Allan Poe
+Abraham Lincoln
