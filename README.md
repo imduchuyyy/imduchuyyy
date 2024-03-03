@@ -1,3 +1,3 @@
-_**I cannot make my days longer, so I strive to make them better.**_
+_**All wisdom does not reside in Delhi.**_
 
-Henry David Thoreau
+P. Chidambaram
