@@ -1,3 +1,3 @@
-_**All wisdom does not reside in Delhi.**_
+_**Yeah, we all shine on, like the moon, and the stars, and the sun.**_
 
-P. Chidambaram
+John Lennon
