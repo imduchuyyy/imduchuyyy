@@ -1,3 +1,3 @@
-_**Yeah, we all shine on, like the moon, and the stars, and the sun.**_
+_**Action may not always bring happiness; but there is no happiness without action.**_
 
-John Lennon
+Benjamin Disraeli
