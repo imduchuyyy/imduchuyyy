@@ -1,3 +1,3 @@
-_**Action may not always bring happiness; but there is no happiness without action.**_
+_**O, what a tangled web we weave when first we practice to deceive!**_
 
-Benjamin Disraeli
+Walter Scott
