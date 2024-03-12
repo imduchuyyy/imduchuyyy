@@ -1,3 +1,3 @@
-_**You are always free to change your mind and choose a different future, or a different past.**_
+_**We know the truth, not only by the reason, but by the heart.**_
 
-Richard Bach
+Blaise Pascal
