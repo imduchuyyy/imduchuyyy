@@ -1,3 +1,3 @@
-_**We know the truth, not only by the reason, but by the heart.**_
+_**I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.**_
 
-Blaise Pascal
+Amy Tan
