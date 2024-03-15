@@ -1,3 +1,3 @@
-_**Argue for your limitations, and sure enough they're yours.**_
+_**Everything will be ok**_
 
-Richard Bach
+Terry
