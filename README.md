@@ -1,3 +1,3 @@
-_**Everything will be ok**_
+_**I never teach my pupils. I only attempt to provide the conditions in which they can learn.**_
 
-Terry
+Albert Einstein
