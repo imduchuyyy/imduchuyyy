@@ -1,3 +1,3 @@
-_**I never teach my pupils. I only attempt to provide the conditions in which they can learn.**_
+_**Before we acquire great power, we must acquire wisdom to use it well.**_
 
-Albert Einstein
+Ralph Waldo Emerson
