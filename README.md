@@ -1,3 +1,3 @@
-_**Before we acquire great power, we must acquire wisdom to use it well.**_
+_**You've got to go out on a limb sometimes because that's where the fruit is.**_
 
-Ralph Waldo Emerson
+Will Rogers
