@@ -1,3 +1,3 @@
-_**Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world.**_
+_**I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones.**_
 
-Harriet Tubman
+Albert Einstein
