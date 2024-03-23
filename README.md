@@ -1,3 +1,3 @@
-_**Give, even if you only have a little.**_
+_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
 
-The Buddha
+Martin Luther King Jr.
