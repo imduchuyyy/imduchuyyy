@@ -1,3 +1,3 @@
-_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
+_**Beware of missing chances; otherwise it may be altogether too late someday.**_
 
-Martin Luther King Jr.
+Franz Liszt
