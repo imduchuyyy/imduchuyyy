@@ -1,3 +1,3 @@
-_**Beware of missing chances; otherwise it may be altogether too late someday.**_
+_**Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.**_
 
-Franz Liszt
+George Foreman
