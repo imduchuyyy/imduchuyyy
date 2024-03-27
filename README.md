@@ -1,3 +1,3 @@
-_**Be yourself; everyone else is already taken.**_
+_**The superior man acts before he speaks, and afterwards speaks according to his action.**_
 
-Oscar Wilde
+Confucius
