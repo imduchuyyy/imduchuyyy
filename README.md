@@ -1,3 +1,3 @@
-_**The superior man acts before he speaks, and afterwards speaks according to his action.**_
+_**Start where you are. Use what you have. Do what you can.**_
 
-Confucius
+Arthur Ashe
