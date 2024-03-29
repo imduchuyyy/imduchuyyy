@@ -1,3 +1,3 @@
-_**Start where you are. Use what you have. Do what you can.**_
+_**Truth is powerful and it prevails.**_
 
-Arthur Ashe
+Sojourner Truth
