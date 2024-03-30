@@ -1,3 +1,3 @@
-_**Truth is powerful and it prevails.**_
+_**The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.**_
 
-Sojourner Truth
+Mahatma Gandhi
