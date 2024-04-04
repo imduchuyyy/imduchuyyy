@@ -1,3 +1,3 @@
-_**Meaning is not what you start with but what you end up with.**_
+_**It is not enough to have a good mind; the main thing is to use it well.**_
 
-Peter Elbow
+René Descartes
