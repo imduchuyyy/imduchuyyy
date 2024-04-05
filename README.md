@@ -1,3 +1,3 @@
-_**It is not enough to have a good mind; the main thing is to use it well.**_
+_**To invent, you need a good imagination and a pile of junk.**_
 
-René Descartes
+Thomas Edison
