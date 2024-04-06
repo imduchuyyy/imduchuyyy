@@ -1,3 +1,3 @@
-_**To invent, you need a good imagination and a pile of junk.**_
+_**If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.**_
 
-Thomas Edison
+Johann Wolfgang von Goethe
