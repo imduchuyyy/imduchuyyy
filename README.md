@@ -1,3 +1,3 @@
-_**If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.**_
+_**Knowing is not enough; we must apply!**_
 
 Johann Wolfgang von Goethe
