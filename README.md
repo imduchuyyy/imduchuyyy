@@ -1,3 +1,3 @@
-_**To avoid criticism, do nothing, say nothing, be nothing.**_
+_**God has given you one face, and you make yourself another.**_
 
-Elbert Hubbard
+William Shakespeare
