@@ -1,3 +1,3 @@
-_**God has given you one face, and you make yourself another.**_
+_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
 
-William Shakespeare
+Tony Robbins
