@@ -1,3 +1,3 @@
-_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
+_**We never understand how little we need in this world until we know the loss of it.**_
 
-Tony Robbins
+J. M. Barrie
