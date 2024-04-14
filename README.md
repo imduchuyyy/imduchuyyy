@@ -1,3 +1,3 @@
-_**His lack of education is more than compensated for by his keenly developed moral bankruptcy.**_
+_**Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some.**_
 
-Woody Allen
+Charles Dickens
