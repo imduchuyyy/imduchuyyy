@@ -1,3 +1,3 @@
-_**Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some.**_
+_**Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting.**_
 
-Charles Dickens
+George Orwell
