@@ -1,3 +1,3 @@
-_**Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting.**_
+_**I'm not afraid of storms, for I'm learning how to sail my ship.**_
 
-George Orwell
+Louisa May Alcott
