@@ -1,3 +1,3 @@
-_**I'm not afraid of storms, for I'm learning how to sail my ship.**_
+_**To bring anything into your life, imagine that it's already there.**_
 
-Louisa May Alcott
+Richard Bach
