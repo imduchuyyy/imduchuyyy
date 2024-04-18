@@ -1,3 +1,3 @@
-_**To bring anything into your life, imagine that it's already there.**_
+_**When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.**_
 
-Richard Bach
+Wayne Dyer
