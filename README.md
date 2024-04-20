@@ -1,3 +1,3 @@
-_**Learning without reflection is a waste, reflection without learning is dangerous.**_
+_**The universe is made of stories, not atoms.**_
 
-Confucius
+Muriel Rukeyser
