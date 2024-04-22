@@ -1,3 +1,3 @@
-_**If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.**_
+_**And as we let our own light shine, we unconsciously give other people permission to do the same.**_
 
-Mary Pickford
+Nelson Mandela
