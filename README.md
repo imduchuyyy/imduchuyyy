@@ -1,3 +1,3 @@
-_**If you surrender to the wind, you can ride it.**_
+_**Success is where preparation and opportunity meet.**_
 
-Toni Morrison
+Bobby Unser
