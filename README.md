@@ -1,3 +1,3 @@
-_**Success is where preparation and opportunity meet.**_
+_**Miracles come in moments. Be ready and willing.**_
 
-Bobby Unser
+Wayne Dyer
