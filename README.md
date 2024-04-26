@@ -1,3 +1,3 @@
-_**Miracles come in moments. Be ready and willing.**_
+_**Reality does not conform to the ideal but confirms it.**_
 
-Wayne Dyer
+Gustave Flaubert
