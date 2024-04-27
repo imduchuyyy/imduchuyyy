@@ -1,3 +1,3 @@
-_**Reality does not conform to the ideal but confirms it.**_
+_**Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.**_
 
-Gustave Flaubert
+Bruce Lee
