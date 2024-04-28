@@ -1,3 +1,3 @@
-_**Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.**_
+_**It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.**_
 
-Bruce Lee
+Mahatma Gandhi
