@@ -1,3 +1,3 @@
-_**It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.**_
+_**We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.**_
 
-Mahatma Gandhi
+Marcia Fudge
