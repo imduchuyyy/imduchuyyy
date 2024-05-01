@@ -1,3 +1,3 @@
-_**I have done my best: that is about all the philosophy of living one needs.**_
+_**Imagination is not a talent of some men but is the health of every man.**_
 
-Lin Yutang
+Ralph Waldo Emerson
