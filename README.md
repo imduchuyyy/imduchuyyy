@@ -1,3 +1,3 @@
-_**Positive thinking will let you do everything better than negative thinking will.**_
+_**Life is like riding a bicycle. To keep your balance you must keep moving.**_
 
-Zig Ziglar
+Albert Einstein
