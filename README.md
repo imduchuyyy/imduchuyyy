@@ -1,3 +1,3 @@
-_**Life is like riding a bicycle. To keep your balance you must keep moving.**_
+_**Logic will get you from A to B. Imagination will take you everywhere.**_
 
 Albert Einstein
