@@ -1,3 +1,3 @@
-_**Logic will get you from A to B. Imagination will take you everywhere.**_
+_**You cannot be lonely if you like the person you're alone with.**_
 
-Albert Einstein
+Wayne Dyer
