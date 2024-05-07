@@ -1,3 +1,3 @@
-_**You cannot be lonely if you like the person you're alone with.**_
+_**The two most powerful warriors are patience and time.**_
 
-Wayne Dyer
+Leo Tolstoy
