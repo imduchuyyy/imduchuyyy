@@ -1,3 +1,3 @@
-_**The two most powerful warriors are patience and time.**_
+_**What is not started today is never finished tomorrow.**_
 
-Leo Tolstoy
+Johann Wolfgang von Goethe
