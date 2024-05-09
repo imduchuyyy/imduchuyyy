@@ -1,3 +1,3 @@
-_**What is not started today is never finished tomorrow.**_
+_**Make it your habit not to be critical about small things.**_
 
-Johann Wolfgang von Goethe
+Edward Everett Hale
