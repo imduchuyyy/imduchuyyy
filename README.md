@@ -1,3 +1,3 @@
-_**Make it your habit not to be critical about small things.**_
+_**The winds and waves are always on the side of the ablest navigators.**_
 
-Edward Everett Hale
+Edward Gibbon
