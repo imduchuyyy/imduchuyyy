@@ -1,3 +1,3 @@
-_**The winds and waves are always on the side of the ablest navigators.**_
+_**Let us sacrifice our today so that our children can have a better tomorrow.**_
 
-Edward Gibbon
+A. P. J. Abdul Kalam
