@@ -1,3 +1,3 @@
-_**Let us sacrifice our today so that our children can have a better tomorrow.**_
+_**From error to error one discovers the entire truth.**_
 
-A. P. J. Abdul Kalam
+Sigmund Freud
