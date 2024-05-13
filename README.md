@@ -1,3 +1,3 @@
-_**From error to error one discovers the entire truth.**_
+_**The higher we are placed, the more humbly we should walk.**_
 
-Sigmund Freud
+Cicero
