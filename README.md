@@ -1,3 +1,3 @@
-_**As an organizer I start from where the world is, as it is, not as I would like it to be.**_
+_**If one is lucky, a solitary fantasy can totally transform one million realities.**_
 
-Saul Alinsky
+Maya Angelou
