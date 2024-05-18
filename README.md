@@ -1,3 +1,3 @@
-_**If one is lucky, a solitary fantasy can totally transform one million realities.**_
+_**Our distrust is very expensive.**_
 
-Maya Angelou
+Ralph Waldo Emerson
