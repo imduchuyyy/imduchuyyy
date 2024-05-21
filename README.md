@@ -1,3 +1,3 @@
-_**Do something wonderful, people may imitate it.**_
+_**Sustaining true friendship is a lot more challenging than we give it credit for.**_
 
-Albert Schweitzer
+Mariella Frostrup
