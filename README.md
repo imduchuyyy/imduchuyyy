@@ -1,3 +1,3 @@
-_**Sustaining true friendship is a lot more challenging than we give it credit for.**_
+_**There are no strangers here; Only friends you haven't yet met.**_
 
-Mariella Frostrup
+William Butler Yeats
