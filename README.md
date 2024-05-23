@@ -1,3 +1,3 @@
-_**There are no strangers here; Only friends you haven't yet met.**_
+_**Nobody made a greater mistake than he who did nothing because he could do only a little.**_
 
-William Butler Yeats
+Edmund Burke
