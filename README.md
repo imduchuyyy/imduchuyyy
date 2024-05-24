@@ -1,3 +1,3 @@
-_**Nobody made a greater mistake than he who did nothing because he could do only a little.**_
+_**Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course.**_
 
-Edmund Burke
+The Buddha
