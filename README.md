@@ -1,3 +1,3 @@
-_**Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course.**_
+_**Technology made large populations possible; large populations now make technology indispensable.**_
 
-The Buddha
+Joseph Wood Krutch
