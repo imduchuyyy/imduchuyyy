@@ -1,3 +1,3 @@
-_**Technology made large populations possible; large populations now make technology indispensable.**_
+_**The ladder of success is never crowded at the top.**_
 
-Joseph Wood Krutch
+Napoleon Hill
