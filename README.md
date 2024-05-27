@@ -1,3 +1,3 @@
-_**The ladder of success is never crowded at the top.**_
+_**Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.**_
 
-Napoleon Hill
+Mother Angelica
