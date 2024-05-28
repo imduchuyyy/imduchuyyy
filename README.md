@@ -1,3 +1,3 @@
-_**Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.**_
+_**Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.**_
 
-Mother Angelica
+Washington Irving
