@@ -1,3 +1,3 @@
-_**Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.**_
+_**No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.**_
 
-Washington Irving
+Helen Keller
