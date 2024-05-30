@@ -1,3 +1,3 @@
-_**No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.**_
+_**The real danger is not that computers will begin to think like men, but that men will begin to think like computers.**_
 
-Helen Keller
+Sydney J. Harris
