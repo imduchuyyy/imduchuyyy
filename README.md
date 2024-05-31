@@ -1,3 +1,3 @@
-_**The real danger is not that computers will begin to think like men, but that men will begin to think like computers.**_
+_**All of our technology is completely unnecessary to a happy life.**_
 
-Sydney J. Harris
+Tom Hodgkinson
