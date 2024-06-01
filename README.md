@@ -1,3 +1,3 @@
-_**All of our technology is completely unnecessary to a happy life.**_
+_**It is easier to live through someone else than to become complete yourself.**_
 
-Tom Hodgkinson
+Betty Friedan
