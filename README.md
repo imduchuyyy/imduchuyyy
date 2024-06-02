@@ -1,3 +1,3 @@
-_**It is easier to live through someone else than to become complete yourself.**_
+_**Sadness flies away on the wings of time.**_
 
-Betty Friedan
+Jean de La Fontaine
