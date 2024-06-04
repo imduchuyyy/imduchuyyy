@@ -1,3 +1,3 @@
-_**The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary.**_
+_**All action results from thought, so it is thoughts that matter.**_
 
-Thomas Edison
+Sai Baba
