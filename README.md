@@ -1,3 +1,3 @@
-_**All action results from thought, so it is thoughts that matter.**_
+_**The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is.**_
 
-Sai Baba
+Winston Churchill
