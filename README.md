@@ -1,3 +1,3 @@
-_**Injuries may be forgiven, but not forgotten.**_
+_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
 
-Aesop
+François de La Rochefoucauld
