@@ -1,3 +1,3 @@
-_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
+_**Football is football and talent is talent. But the mindset of your team makes all the difference.**_
 
-François de La Rochefoucauld
+Robert Griffin III
