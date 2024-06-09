@@ -1,3 +1,3 @@
-_**Football is football and talent is talent. But the mindset of your team makes all the difference.**_
+_**The superior man understands what is right; the inferior man understands what will sell.**_
 
-Robert Griffin III
+Confucius
