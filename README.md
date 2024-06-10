@@ -1,3 +1,3 @@
-_**The superior man understands what is right; the inferior man understands what will sell.**_
+_**Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure.**_
 
-Confucius
+The Buddha
