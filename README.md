@@ -1,3 +1,3 @@
-_**There is no greater harm than that of time wasted.**_
+_**Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking.**_
 
-Michelangelo
+Albert Einstein
