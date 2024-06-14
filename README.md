@@ -1,3 +1,3 @@
-_**Keep yourself to the sunshine and you cannot see the shadow.**_
+_**To be happy is to be able to become aware of oneself without fright.**_
 
-Helen Keller
+Walter Benjamin
