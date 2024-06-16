@@ -1,3 +1,3 @@
-_**The pine stays green in winter... wisdom in hardship.**_
+_**Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.**_
 
-Norman Douglas
+Amy Bloom
