@@ -1,3 +1,3 @@
-_**Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.**_
+_**Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.**_
 
-Amy Bloom
+Marcel Proust
