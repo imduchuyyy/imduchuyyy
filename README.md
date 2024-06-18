@@ -1,3 +1,3 @@
-_**Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.**_
+_**First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination.**_
 
-Marcel Proust
+Napoleon Hill
