@@ -1,3 +1,3 @@
-_**First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination.**_
+_**A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve.**_
 
-Napoleon Hill
+Oliver Wendell Holmes Jr.
