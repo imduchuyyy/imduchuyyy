@@ -1,3 +1,3 @@
-_**Imagination will often carry us to worlds that never were. But without it we go nowhere.**_
+_**All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.**_
 
-Carl Sagan
+Alexis Carrel
