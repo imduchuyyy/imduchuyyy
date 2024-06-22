@@ -1,3 +1,3 @@
-_**All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.**_
+_**In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.**_
 
-Alexis Carrel
+Richard Bach
