@@ -1,3 +1,3 @@
-_**In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.**_
+_**I do not dispute with the world; rather it is the world that disputes with me.**_
 
-Richard Bach
+The Buddha
