@@ -1,3 +1,3 @@
-_**If you cannot do great things, do small things in a great way.**_
+_**When you doubt your power, you give power to your doubt.**_
 
-Napoleon Hill
+Honoré de Balzac
