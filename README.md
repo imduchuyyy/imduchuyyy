@@ -1,3 +1,3 @@
-_**In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.**_
+_**Time you enjoy wasting, was not wasted.**_
 
-Richard Bach
+John Lennon
