@@ -1,3 +1,3 @@
-_**Time you enjoy wasting, was not wasted.**_
+_**To command is to serve, nothing more and nothing less.**_
 
-John Lennon
+André Malraux
