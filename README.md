@@ -1,3 +1,3 @@
-_**To command is to serve, nothing more and nothing less.**_
+_**It's the little details that are vital. Little things make big things happen.**_
 
-André Malraux
+John Wooden
