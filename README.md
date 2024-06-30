@@ -1,3 +1,3 @@
-_**It's the little details that are vital. Little things make big things happen.**_
+_**Value your friendship. Value your relationships.**_
 
-John Wooden
+Barbara Bush
