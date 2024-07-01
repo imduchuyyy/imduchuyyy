@@ -1,3 +1,3 @@
-_**Value your friendship. Value your relationships.**_
+_**As you think, so shall you become.**_
 
-Barbara Bush
+Bruce Lee
