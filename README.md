@@ -1,3 +1,3 @@
-_**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**_
+_**The ladder of success is never crowded at the top.**_
 
-Colin Powell
+Napoleon Hill
