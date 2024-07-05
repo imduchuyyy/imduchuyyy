@@ -1,3 +1,3 @@
-_**The ladder of success is never crowded at the top.**_
+_**The truth of the matter is that you always know the right thing to do. The hard part is doing it.**_
 
-Napoleon Hill
+Norman Schwarzkopf
