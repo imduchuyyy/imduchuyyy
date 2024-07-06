@@ -1,3 +1,3 @@
-_**The truth of the matter is that you always know the right thing to do. The hard part is doing it.**_
+_**By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning.**_
 
-Norman Schwarzkopf
+Laozi
