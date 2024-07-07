@@ -1,3 +1,3 @@
-_**By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning.**_
+_**Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.**_
 
-Laozi
+Carl Jung
