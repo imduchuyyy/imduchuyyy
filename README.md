@@ -1,3 +1,3 @@
-_**Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.**_
+_**Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.**_
 
-Carl Jung
+Woodrow Wilson
