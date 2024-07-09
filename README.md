@@ -1,3 +1,3 @@
-_**Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.**_
+_**There is no retirement for an artist, it's your way of living so there is no end to it.**_
 
-Woodrow Wilson
+Henry Moore
