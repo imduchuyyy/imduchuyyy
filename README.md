@@ -1,3 +1,3 @@
-_**There is no retirement for an artist, it's your way of living so there is no end to it.**_
+_**I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.**_
 
-Henry Moore
+Og Mandino
