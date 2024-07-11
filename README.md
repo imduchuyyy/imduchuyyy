@@ -1,3 +1,3 @@
-_**I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.**_
+_**By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.**_
 
-Og Mandino
+Confucius
