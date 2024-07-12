@@ -1,3 +1,3 @@
-_**By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.**_
+_**The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.**_
 
-Confucius
+Oscar Wilde
