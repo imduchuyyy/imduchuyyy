@@ -1,3 +1,3 @@
-_**The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.**_
+_**Knowledge is proud that it knows so much; wisdom is humble that it knows no more.**_
 
-Oscar Wilde
+William Cowper
