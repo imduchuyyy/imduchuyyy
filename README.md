@@ -1,3 +1,3 @@
-_**The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.**_
+_**The way we communicate with others and with ourselves ultimately determines the quality of our lives.**_
 
-Charles Darwin
+Tony Robbins
