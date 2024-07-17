@@ -1,3 +1,3 @@
-_**The way we communicate with others and with ourselves ultimately determines the quality of our lives.**_
+_**To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do.**_
 
-Tony Robbins
+Kahlil Gibran
