@@ -1,3 +1,3 @@
-_**Life is what you make of it. Always has been, always will be.**_
+_**Love does not consist of gazing at each other, but in looking together in the same direction.**_
 
-Grandma Moses
+Antoine de Saint-Exupéry
