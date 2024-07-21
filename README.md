@@ -1,3 +1,3 @@
-_**Love does not consist of gazing at each other, but in looking together in the same direction.**_
+_**We are Divine enough to ask and we are important enough to receive.**_
 
-Antoine de Saint-Exupéry
+Wayne Dyer
