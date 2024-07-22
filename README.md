@@ -1,3 +1,3 @@
-_**We are Divine enough to ask and we are important enough to receive.**_
+_**Wisdom alone is the science of other sciences.**_
 
-Wayne Dyer
+Plato
