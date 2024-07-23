@@ -1,3 +1,3 @@
-_**Wisdom alone is the science of other sciences.**_
+_**All I can say about life is, Oh God, enjoy it!**_
 
-Plato
+Bob Newhart
