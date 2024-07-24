@@ -1,3 +1,3 @@
-_**All I can say about life is, Oh God, enjoy it!**_
+_**An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.**_
 
-Bob Newhart
+Thomas Fuller
