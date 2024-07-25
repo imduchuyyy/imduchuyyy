@@ -1,3 +1,3 @@
-_**An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.**_
+_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
 
-Thomas Fuller
+Helen Keller
