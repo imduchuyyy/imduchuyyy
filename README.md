@@ -1,3 +1,3 @@
-_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
+_**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**_
 
-Helen Keller
+Aristotle
