@@ -1,3 +1,3 @@
-_**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**_
+_**The best thing in every noble dream is the dreamer...**_
 
-Aristotle
+Moncure D. Conway
