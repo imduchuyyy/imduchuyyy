@@ -1,3 +1,3 @@
-_**The best thing in every noble dream is the dreamer...**_
+_**It is impossible to experience one's death objectively and still carry a tune.**_
 
-Moncure D. Conway
+Woody Allen
