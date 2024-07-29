@@ -1,3 +1,3 @@
-_**It is impossible to experience one's death objectively and still carry a tune.**_
+_**Only when we are no longer afraid do we begin to live.**_
 
-Woody Allen
+Dorothy Thompson
