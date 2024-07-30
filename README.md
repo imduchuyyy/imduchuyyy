@@ -1,3 +1,3 @@
-_**Only when we are no longer afraid do we begin to live.**_
+_**We may encounter many defeats, but we must not be defeated.**_
 
-Dorothy Thompson
+Maya Angelou
