@@ -1,3 +1,3 @@
-_**The fox has many tricks. The hedgehog has but one. But that is the best of all.**_
+_**Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.**_
 
-Erasmus
+Ovid
