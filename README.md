@@ -1,3 +1,3 @@
-_**By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.**_
+_**Keep silence for the most part, and speak only when you must, and then briefly.**_
 
-Confucius
+Epictetus
