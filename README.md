@@ -1,3 +1,3 @@
-_**Keep silence for the most part, and speak only when you must, and then briefly.**_
+_**Never reach out your hand unless you're willing to extend an arm.**_
 
-Epictetus
+Pope Paul VI
