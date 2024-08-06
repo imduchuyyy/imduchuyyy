@@ -1,3 +1,3 @@
-_**Never reach out your hand unless you're willing to extend an arm.**_
+_**The only Zen you find on the tops of mountains is the Zen you bring up there.**_
 
-Pope Paul VI
+Robert M. Pirsig
