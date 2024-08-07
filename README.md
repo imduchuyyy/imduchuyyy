@@ -1,3 +1,3 @@
-_**The only Zen you find on the tops of mountains is the Zen you bring up there.**_
+_**This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.**_
 
-Robert M. Pirsig
+Thomas Carlyle
