@@ -1,3 +1,3 @@
-_**It takes courage to grow up and become who you really are.**_
+_**You know you're in love when you can't fall asleep because reality is finally better than your dreams.**_
 
-E. E. Cummings
+Dr. Seuss
