@@ -1,3 +1,3 @@
-_**You know you're in love when you can't fall asleep because reality is finally better than your dreams.**_
+_**Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.**_
 
-Dr. Seuss
+Thomas Carlyle
