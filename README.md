@@ -1,3 +1,3 @@
-_**Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.**_
+_**The greatest way to live with honor in this world is to be what we pretend to be.**_
 
-Thomas Carlyle
+Socrates
