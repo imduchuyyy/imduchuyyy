@@ -1,3 +1,3 @@
-_**The greatest way to live with honor in this world is to be what we pretend to be.**_
+_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
 
-Socrates
+Marcus Aurelius
