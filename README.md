@@ -1,3 +1,3 @@
-_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
+_**Remember that the most valuable antiques are dear old friends.**_
 
-Marcus Aurelius
+H. Jackson Brown Jr.
