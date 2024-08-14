@@ -1,3 +1,3 @@
-_**Remember that the most valuable antiques are dear old friends.**_
+_**Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.**_
 
-H. Jackson Brown Jr.
+Robert Louis Stevenson
