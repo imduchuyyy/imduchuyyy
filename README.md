@@ -1,3 +1,3 @@
-_**Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.**_
+_**In the end we retain from our studies only that which we practically apply.**_
 
-Robert Louis Stevenson
+Johann Wolfgang von Goethe
