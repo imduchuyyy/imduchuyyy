@@ -1,3 +1,3 @@
-_**In the end we retain from our studies only that which we practically apply.**_
+_**If we look at the world with a love of life, the world will reveal its beauty to us.**_
 
-Johann Wolfgang von Goethe
+Daisaku Ikeda
