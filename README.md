@@ -1,3 +1,3 @@
-_**Error is discipline through which we advance.**_
+_**We are stuck with technology when what we really want is just stuff that works.**_
 
-William Ellery Channing
+Douglas Adams
