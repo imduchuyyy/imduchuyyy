@@ -1,3 +1,3 @@
-_**We are stuck with technology when what we really want is just stuff that works.**_
+_**Setting an example is not the main means of influencing another, it is the only means.**_
 
-Douglas Adams
+Albert Einstein
