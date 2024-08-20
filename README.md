@@ -1,3 +1,3 @@
-_**Setting an example is not the main means of influencing another, it is the only means.**_
+_**By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.**_
 
-Albert Einstein
+The Buddha
