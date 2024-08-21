@@ -1,3 +1,3 @@
-_**By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.**_
+_**The man who trusts men will make fewer mistakes than he who distrusts them.**_
 
-The Buddha
+Camillo Benso, Count of Cavour
