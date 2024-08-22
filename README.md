@@ -1,3 +1,3 @@
-_**The man who trusts men will make fewer mistakes than he who distrusts them.**_
+_**As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.**_
 
-Camillo Benso, Count of Cavour
+Joseph Prince
