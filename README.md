@@ -1,3 +1,3 @@
-_**Do you know what my favorite part of the game is? The opportunity to play.**_
+_**It always seems impossible until it's done.**_
 
-Mike Singletary (basketball)
+Nelson Mandela
