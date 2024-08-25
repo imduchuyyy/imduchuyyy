@@ -1,3 +1,3 @@
-_**It always seems impossible until it's done.**_
+_**Anticipate the difficult by managing the easy.**_
 
-Nelson Mandela
+Laozi
