@@ -1,3 +1,3 @@
-_**Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always.**_
+_**God always takes the simplest way.**_
 
-Oprah Winfrey
+Albert Einstein
