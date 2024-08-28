@@ -1,3 +1,3 @@
-_**God always takes the simplest way.**_
+_**Love is blind; friendship closes its eyes.**_
 
-Albert Einstein
+Friedrich Nietzsche
