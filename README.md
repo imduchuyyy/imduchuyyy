@@ -1,3 +1,3 @@
-_**Love is blind; friendship closes its eyes.**_
+_**With every experience, you alone are painting your own canvas, thought by thought, choice by choice.**_
 
-Friedrich Nietzsche
+Oprah Winfrey
