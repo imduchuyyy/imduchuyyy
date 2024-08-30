@@ -1,3 +1,3 @@
-_**With every experience, you alone are painting your own canvas, thought by thought, choice by choice.**_
+_**A really great talent finds its happiness in execution.**_
 
-Oprah Winfrey
+Johann Wolfgang von Goethe
