@@ -1,3 +1,3 @@
-_**A really great talent finds its happiness in execution.**_
+_**Life is movement-we breathe, we eat, we walk, we move!**_
 
-Johann Wolfgang von Goethe
+John Pierrakos
