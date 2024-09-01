@@ -1,3 +1,3 @@
-_**Life is movement-we breathe, we eat, we walk, we move!**_
+_**One loyal friend is worth ten thousand relatives.**_
 
-John Pierrakos
+Euripides
