@@ -1,3 +1,3 @@
-_**One loyal friend is worth ten thousand relatives.**_
+_**Winners never quit and quitters never win.**_
 
-Euripides
+Vince Lombardi
