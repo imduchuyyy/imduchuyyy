@@ -1,3 +1,3 @@
-_**Winners never quit and quitters never win.**_
+_**Real success is finding your lifework in the work that you love.**_
 
-Vince Lombardi
+David McCullough
