@@ -1,3 +1,3 @@
-_**Real success is finding your lifework in the work that you love.**_
+_**Through perseverance many people win success out of what seemed destined to be certain failure.**_
 
-David McCullough
+Benjamin Disraeli
