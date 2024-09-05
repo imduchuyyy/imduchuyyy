@@ -1,3 +1,3 @@
-_**Through perseverance many people win success out of what seemed destined to be certain failure.**_
+_**And the attitude of faith is the very opposite of clinging to belief, of holding on.**_
 
-Benjamin Disraeli
+Alan Watts
