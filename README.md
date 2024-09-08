@@ -1,3 +1,3 @@
-_**There is nothing permanent except change.**_
+_**Do not wait for leaders; do it alone, person to person.**_
 
-Heraclitus
+Mother Teresa
