@@ -1,3 +1,3 @@
-_**Do not wait for leaders; do it alone, person to person.**_
+_**It's better to be a lion for a day than a sheep all your life.**_
 
-Mother Teresa
+Elizabeth Kenny
