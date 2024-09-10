@@ -1,3 +1,3 @@
-_**It's better to be a lion for a day than a sheep all your life.**_
+_**Autumn is a second spring when every leaf is a flower.**_
 
-Elizabeth Kenny
+Albert Camus
