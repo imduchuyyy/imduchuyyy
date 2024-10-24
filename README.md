@@ -1,3 +1,3 @@
-_**Autumn is a second spring when every leaf is a flower.**_
+_**Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. **_
 
-Albert Camus
+Marcus Aurelius 
