@@ -11,6 +11,9 @@ def get_quote() -> tuple:
     content = data["quoteText"]
     author = data["quoteAuthor"]
 
+    if content and content[-1] == " ":
+        content = content[:-1]
+
     return content, author
 
 def write_to_readme(quote, author):
