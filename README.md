@@ -1,3 +1,3 @@
-<i>The mind is everything. What you think you become. </i>
+<i>There are no failures. Just experiences and your reactions to them.</i>
 
-Buddha 
+Tom Krause
