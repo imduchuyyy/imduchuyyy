@@ -1,3 +1,3 @@
-_**Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.**_
+_**The mind is everything. What you think you become.  **_
 
-Marcus Aurelius 
+Buddha 
