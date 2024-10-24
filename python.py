@@ -15,7 +15,7 @@ def get_quote() -> tuple:
 
 def write_to_readme(quote, author):
     f = open("README.md", "w")
-    f.write("_**" + quote + "**_\n\n" + author)
+    f.write("<i>" + quote + "</i>\n\n" + author)
 
     f.close()
 
