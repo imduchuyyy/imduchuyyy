@@ -1,15 +1,15 @@
 import requests
 
 def get_quote() -> tuple:
-    response = requests.get(url = "https://api.quotable.io/random")
+    response = requests.get(url = "https://api.forismatic.com/api/1.0/?method=getQuote&format=json&lang=en")
 
     if response.status_code != 200:
         return "Everything will be ok", "Terry"
     
     data = response.json()
 
-    content = data["content"]
-    author = data["author"]
+    content = data["quoteText"]
+    author = data["quoteAuthor"]
 
     return content, author
 
