@@ -1,3 +1,3 @@
-<i>There are no failures. Just experiences and your reactions to them.</i>
+<i>Whoever is happy will make others happy, too. </i>
 
-Tom Krause
+Mark Twain
