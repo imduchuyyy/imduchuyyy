@@ -1,3 +1,3 @@
-<i>Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.</i>
+<i>The key to growth is the introduction of higher dimensions of consciousness into our awareness.  </i>
 
-Charles A. Lindbergh
+Lao Tzu 
