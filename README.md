@@ -1,3 +1,3 @@
-<i>The key to growth is the introduction of higher dimensions of consciousness into our awareness.  </i>
+<i>One who is too insistent on his own views, finds few to agree with him.  </i>
 
 Lao Tzu 
