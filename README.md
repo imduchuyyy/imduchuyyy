@@ -1,3 +1,3 @@
-<i>One who is too insistent on his own views, finds few to agree with him.  </i>
+<i>Gratitude is not only the greatest of virtues, but the paren't of all the others.</i>
 
-Lao Tzu 
+Cicero
