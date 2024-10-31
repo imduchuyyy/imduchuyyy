@@ -1,3 +1,3 @@
-<i>Gratitude is not only the greatest of virtues, but the paren't of all the others.</i>
+<i>Happiness is a Swedish sunset — it is there for all, but most of us look the other way and lose it. </i>
 
-Cicero
+Mark Twain
