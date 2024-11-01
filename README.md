@@ -1,3 +1,3 @@
-<i>Happiness is a Swedish sunset — it is there for all, but most of us look the other way and lose it. </i>
+<i>Strength does not come from physical capacity. It comes from an indomitable will.</i>
 
-Mark Twain
+Mahatma Gandhi
