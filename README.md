@@ -1,3 +1,2 @@
-<i>Strength does not come from physical capacity. It comes from an indomitable will.</i>
+<i>Watch your thoughts, they become your words Watch your words, they become your actions Watch your actions, they become your habits Watch your habits, they become your character Watch your character, it becomes your destiny. </i>
 
-Mahatma Gandhi
