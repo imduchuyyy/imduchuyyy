@@ -1,3 +1,3 @@
-<i>Wherever a man turns he can find someone who needs him.  </i>
+<i>Speak low, if you speak love.  </i>
 
-Albert Schweitzer
+William Shakespeare 
