@@ -1,3 +1,3 @@
-<i>Speak low, if you speak love.  </i>
+<i>There is no logical way to the discovery of these elemental laws. There is only the way of intuition, which is helped by a feeling for the order lying behind the appearance. </i>
 
-William Shakespeare 
+Albert Einstein
