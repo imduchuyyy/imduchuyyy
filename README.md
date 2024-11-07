@@ -1,3 +1,3 @@
-<i>The most decisive actions of our life... are most often unconsidered actions.</i>
+<i>Success is determined by those whom prove the impossible, possible. </i>
 
-André Gide
+James Pence 
