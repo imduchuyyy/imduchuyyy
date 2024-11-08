@@ -1,3 +1,3 @@
-<i>Success is determined by those whom prove the impossible, possible. </i>
+<i>It has never been my object to record my dreams, just to realize them. </i>
 
-James Pence 
+Man Ray
