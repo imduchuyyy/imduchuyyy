@@ -1,3 +1,3 @@
-<i>The world is always in movement. </i>
+<i>Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. </i>
 
-V. Naipaul
+Buddha
