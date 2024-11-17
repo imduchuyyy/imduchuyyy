@@ -1,3 +1,3 @@
-<i>Make the most of yourself, for that is all there is of you. </i>
+<i>An ant on the move does more than a dozing ox </i>
 
-Ralph Emerson
+Lao Tzu
