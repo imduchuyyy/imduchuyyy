@@ -1,3 +1,3 @@
-<i>An ant on the move does more than a dozing ox </i>
+<i>A jug fills drop by drop.  </i>
 
-Lao Tzu
+Buddha 
