@@ -1,3 +1,3 @@
-<i>Love at first sight is easy to understand; its when two people have been looking at each other for a lifetime that it becomes a miracle. </i>
+<i>A wise man will make more opportunities than he finds. </i>
 
-Amy Bloom
+Francis Bacon
