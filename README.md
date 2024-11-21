@@ -1,3 +1,3 @@
-<i>A wise man will make more opportunities than he finds. </i>
+<i>Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. </i>
 
-Francis Bacon
+Albert Schweitzer
