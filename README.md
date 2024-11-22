@@ -1,3 +1,3 @@
-<i>Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. </i>
+<i>What we see depends mainly on what we look for. </i>
 
-Albert Schweitzer
+John Lubbock
