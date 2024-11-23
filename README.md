@@ -1,3 +1,3 @@
-<i>What we see depends mainly on what we look for. </i>
+<i>Though no one can go back and make a brand new start, anyone can start from not and make a brand new ending. </i>
 
-John Lubbock
+Carl Bard 
