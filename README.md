@@ -1,3 +1,3 @@
-<i>One faces the future with ones past.</i>
+<i>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly. </i>
 
-Pearl Buck
+Henri Bergson
