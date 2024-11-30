@@ -1,3 +1,3 @@
-<i>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly. </i>
+<i>Hold a picture of yourself long and steadily enough in your minds eye, and you will be drawn toward it.  </i>
 
-Henri Bergson
+Napoleon Hill 
