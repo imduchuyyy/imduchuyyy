@@ -1,3 +1,3 @@
-<i>Hold a picture of yourself long and steadily enough in your minds eye, and you will be drawn toward it.  </i>
+<i>Doing nothing is better than being busy doing nothing.</i>
 
-Napoleon Hill 
+Lao Tzu
