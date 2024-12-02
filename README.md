@@ -1,3 +1,3 @@
-<i>Doing nothing is better than being busy doing nothing.</i>
+<i>Be like the flower, turn your face to the sun. </i>
 
-Lao Tzu
+Kahlil Gibran
