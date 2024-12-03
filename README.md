@@ -1,3 +1,3 @@
-<i>Be like the flower, turn your face to the sun. </i>
+<i>If there is no struggle, there is no progress. </i>
 
-Kahlil Gibran
+Frederick Douglass
