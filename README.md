@@ -1,3 +1,3 @@
-<i>If there is no struggle, there is no progress. </i>
+<i>A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value. </i>
 
-Frederick Douglass
+Isaac Asimov
