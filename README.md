@@ -1,3 +1,3 @@
-<i>A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value. </i>
+<i>Minds are like parachutes. They only function when open.</i>
 
-Isaac Asimov
+Thomas Dewar
