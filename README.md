@@ -1,3 +1,3 @@
-<i>Minds are like parachutes. They only function when open.</i>
+<i>With realization of ones own potential and self-confidence in ones ability, one can build a better world. </i>
 
-Thomas Dewar
+Dalai Lama 
