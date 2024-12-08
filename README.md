@@ -1,3 +1,3 @@
-<i>When there is no enemy within, the enemies outside cannot hurt you.</i>
+<i>While we try to teach our children all about life, our children teach us what life is all about.</i>
 
-African proverb﻿
+Angela Schwindt
