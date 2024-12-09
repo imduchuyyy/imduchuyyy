@@ -1,3 +1,2 @@
-<i>While we try to teach our children all about life, our children teach us what life is all about.</i>
+<i>Every sixty seconds you spend angry, upset or mad, is a full minute of happiness you’ll never get back.</i>
 
-Angela Schwindt
