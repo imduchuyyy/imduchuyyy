@@ -1,3 +1,3 @@
-<i>If there is any one secret of success, it lies in the ability to get the other persons point of view and see things from his angle as well as your own.  </i>
+<i>Staying in one place is the best path to be taken over and surpassed by many. </i>
 
-Henry Ford
+Byron Pulsifer
