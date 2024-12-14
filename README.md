@@ -1,3 +1,3 @@
-<i>Staying in one place is the best path to be taken over and surpassed by many. </i>
+<i>Whatever we expect with confidence becomes our own self-fulfilling prophecy. </i>
 
-Byron Pulsifer
+Brian Tracy
