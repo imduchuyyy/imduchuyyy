@@ -1,3 +1,3 @@
-<i>Whatever we expect with confidence becomes our own self-fulfilling prophecy. </i>
+<i>If you want things to be different, perhaps the answer is to become different yourself. </i>
 
-Brian Tracy
+Norman Peale
