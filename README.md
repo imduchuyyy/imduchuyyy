@@ -1,3 +1,3 @@
-<i>Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. </i>
+<i>No one has a finer command of language than the person who keeps his mouth shut. </i>
 
-Albert Einstein
+Sam Rayburn
