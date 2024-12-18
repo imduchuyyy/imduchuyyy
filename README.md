@@ -1,3 +1,3 @@
-<i>No one has a finer command of language than the person who keeps his mouth shut. </i>
+<i>Imagination will often carry us to worlds that never were. But without it we go nowhere. </i>
 
-Sam Rayburn
+Carl Sagan
