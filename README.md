@@ -1,3 +1,3 @@
-<i>Victory belongs to the most persevering.  </i>
+<i>He who does not trust enough, Will not be trusted.  </i>
 
-Napoleon Bonaparte 
+Lao Tzu 
