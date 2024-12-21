@@ -1,3 +1,3 @@
-<i>He who does not trust enough, Will not be trusted.  </i>
+<i>Without some goals and some efforts to reach it, no man can live. </i>
 
-Lao Tzu 
+John Dewey
