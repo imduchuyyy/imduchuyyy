@@ -1,3 +1,3 @@
-<i>Without some goals and some efforts to reach it, no man can live. </i>
+<i>Growth begins when we begin to accept our own weakness.  </i>
 
-John Dewey
+Jean Vanier 
