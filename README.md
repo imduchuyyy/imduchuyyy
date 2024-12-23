@@ -1,3 +1,3 @@
-<i>Growth begins when we begin to accept our own weakness.  </i>
+<i>Smile, breathe, and go slowly.</i>
 
-Jean Vanier 
+Thich Nhat Hanh
