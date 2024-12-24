@@ -1,3 +1,3 @@
-<i>Smile, breathe, and go slowly.</i>
+<i>Happiness is a perfume you cannot pour on others without getting a few drops on yourself. </i>
 
-Thich Nhat Hanh
+Ralph Waldo Emerson
