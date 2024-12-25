@@ -1,3 +1,3 @@
-<i>Happiness is a perfume you cannot pour on others without getting a few drops on yourself. </i>
+<i>Moments of complete apathy are the best for new creations.</i>
 
-Ralph Waldo Emerson
+Philip Breedveld
