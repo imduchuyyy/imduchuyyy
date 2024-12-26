@@ -1,3 +1,3 @@
-<i>Moments of complete apathy are the best for new creations.</i>
+<i>Our greatest glory is not in never falling, but in rising every time we fall.  </i>
 
-Philip Breedveld
+Confucius 
