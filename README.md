@@ -1,3 +1,3 @@
-<i>Our greatest glory is not in never falling, but in rising every time we fall.  </i>
+<i>The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur. </i>
 
-Confucius 
+Vincent Lombardi
