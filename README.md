@@ -1,3 +1,3 @@
-<i>The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur. </i>
+<i>The doors we open and close each day decide the lives we live.</i>
 
-Vincent Lombardi
+Flora Whittemore
