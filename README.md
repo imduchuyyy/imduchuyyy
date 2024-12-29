@@ -1,3 +1,3 @@
-<i>The doors we open and close each day decide the lives we live.</i>
+<i>Setting an example is not the main means of influencing another, it is the only means. </i>
 
-Flora Whittemore
+Albert Einstein
