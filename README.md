@@ -1,3 +1,3 @@
-<i>Setting an example is not the main means of influencing another, it is the only means. </i>
+<i>All the great performers I have worked with are fuelled by a personal dream. </i>
 
-Albert Einstein
+John Eliot
