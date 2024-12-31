@@ -1,3 +1,3 @@
-<i>All the great performers I have worked with are fuelled by a personal dream. </i>
+<i>Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigour of the mind.</i>
 
-John Eliot
+Leonardo da Vinci
