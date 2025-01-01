@@ -1,3 +1,3 @@
-<i>Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigour of the mind.</i>
+<i>Study the past, if you would divine the future.  </i>
 
-Leonardo da Vinci
+Confucius 
