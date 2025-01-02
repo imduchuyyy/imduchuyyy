@@ -1,3 +1,3 @@
-<i>Study the past, if you would divine the future.  </i>
+<i>It is one of the blessings of old friends that you can afford to be stupid with them. </i>
 
-Confucius 
+Ralph Emerson
