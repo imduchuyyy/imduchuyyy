@@ -1,3 +1,3 @@
-<i>Everything will be ok</i>
+<i>I attribute my success to this: I never gave or took any excuse.</i>
 
-Terry
+Florence Nightingale

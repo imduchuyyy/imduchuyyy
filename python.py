@@ -1,15 +1,15 @@
 import requests
 
 def get_quote() -> tuple:
-    response = requests.get(url = "https://api.forismatic.com/api/1.0/?method=getQuote&format=json&lang=en")
+    response = requests.get(url = "https://quotes-api-self.vercel.app/quote")
 
     if response.status_code != 200:
         return "Everything will be ok", "Terry"
     
     data = response.json()
 
-    content = data["quoteText"]
-    author = data["quoteAuthor"]
+    content = data["quote"]
+    author = data["author"]
 
     return content, author
 
