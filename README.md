@@ -1,3 +1,3 @@
-<i>I attribute my success to this: I never gave or took any excuse.</i>
+<i>I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.</i>
 
-Florence Nightingale
+Leonardo da Vinci
