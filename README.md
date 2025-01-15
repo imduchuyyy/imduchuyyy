@@ -1,3 +1,3 @@
-<i>I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.</i>
+<i>We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.</i>
 
-Leonardo da Vinci
+Plato
