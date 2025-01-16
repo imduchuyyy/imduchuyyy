@@ -1,3 +1,3 @@
-<i>We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.</i>
+<i>As Long As We Continue To Fight We Are Not Defeated</i>
 
-Plato
+Miche Zacharius
