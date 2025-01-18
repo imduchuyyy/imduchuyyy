@@ -1,3 +1,3 @@
-<i>The future belongs to those who believe in the beauty of their dreams.</i>
+<i>Being weak means that there is room to grow</i>
 
-Eleanor Roosevelt
+Ittetsu Takeda
