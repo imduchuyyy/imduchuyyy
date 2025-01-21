@@ -1,3 +1,3 @@
-<i>Believe you can and you're halfway there.</i>
+<i>Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it.</i>
 
-Theodore Roosevelt
+Johann Wolfgang von Goethe
