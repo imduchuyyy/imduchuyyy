@@ -1,3 +1,3 @@
-<i>Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it.</i>
+<i>We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.</i>
 
-Johann Wolfgang von Goethe
+Plato
