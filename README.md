@@ -1,3 +1,3 @@
-<i>We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.</i>
+<i>Fools who don’t respect the past are likely to repeat it.</i>
 
-Plato
+Nico Robin
