@@ -1,3 +1,3 @@
-<i>Fools who don’t respect the past are likely to repeat it.</i>
+<i>Life shrinks or expands in proportion to one’s courage.</i>
 
-Nico Robin
+Anais Nin
