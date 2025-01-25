@@ -1,3 +1,3 @@
-<i>Life shrinks or expands in proportion to one’s courage.</i>
+<i>You can’t use up creativity.  The more you use, the more you have.</i>
 
-Anais Nin
+Maya Angelou
