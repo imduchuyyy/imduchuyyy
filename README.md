@@ -1,3 +1,3 @@
-<i>It’s just pathetic to give up on something before you even give it a shot.</i>
+<i>The most difficult thing is the decision to act, the rest is merely tenacity.</i>
 
-Reiko Mikami
+Amelia Earhart
