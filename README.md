@@ -1,3 +1,3 @@
-<i>If you really want to be strong… Stop caring about what your surrounding thinks of you!</i>
+<i>No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least</i>
 
-Saitama
+Levi Ackerman
