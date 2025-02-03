@@ -1,3 +1,3 @@
-<i>Don’t give up, there’s no shame in falling down! True shame is to not stand up again!</i>
+<i>You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way.</i>
 
-Shintaro Midorima
+Junichirou Kagami
