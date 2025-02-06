@@ -1,3 +1,3 @@
-<i>The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful.</i>
+<i>Nothing is impossible, the word itself says, “I’m possible!”</i>
 
-Roy Mustang
+–Audrey Hepburn
