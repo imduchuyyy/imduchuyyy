@@ -1,3 +1,3 @@
-<i>I refuse to let my fear control me anymore.</i>
+<i>You can die anytime, but living takes true courage.</i>
 
-Maka Albarn
+Himura Kenshin
