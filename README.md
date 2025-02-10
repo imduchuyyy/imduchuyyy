@@ -1,3 +1,3 @@
-<i>You can die anytime, but living takes true courage.</i>
+<i>If you don’t like your destiny, don’t accept it.</i>
 
-Himura Kenshin
+Naruto Uzumaki
