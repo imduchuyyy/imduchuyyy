@@ -1,3 +1,3 @@
-<i>Don’t beg for things. Do it yourself, or else you won’t get anything.</i>
+<i>Too many of us are not living our dreams because we are living our fears.</i>
 
-Renton Thurston
+Les Brown
