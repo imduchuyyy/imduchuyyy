@@ -1,3 +1,3 @@
-<i>Too many of us are not living our dreams because we are living our fears.</i>
+<i>We can’t help everyone, but everyone can help someone.</i>
 
-Les Brown
+Ronald Reagan
