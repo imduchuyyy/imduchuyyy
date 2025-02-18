@@ -1,3 +1,3 @@
-<i>When you give up, that’s when the game ends.</i>
+<i>Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?</i>
 
-Mitsuyoshi Anzai
+Juuzou Suzuya
