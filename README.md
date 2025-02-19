@@ -1,3 +1,3 @@
-<i>Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?</i>
+<i>We can’t waste time worrying about the what if’s.</i>
 
-Juuzou Suzuya
+Ichigo Kurosaki
