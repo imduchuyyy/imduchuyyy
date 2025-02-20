@@ -1,3 +1,3 @@
-<i>We can’t waste time worrying about the what if’s.</i>
+<i>Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.</i>
 
-Ichigo Kurosaki
+Jamie Paolinetti
