@@ -1,3 +1,3 @@
-<i>Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.</i>
+<i>It is at the moment of death that humanity has value.</i>
 
-Jamie Paolinetti
+Archer
