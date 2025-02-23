@@ -1,3 +1,3 @@
-<i>Religion, ideology, resources, land, spite, love or just because… No matter how pathetic the reason, it’s enough to start a war. War will never cease to exist… reasons can be thought up after the fact… Human nature pursues strife.</i>
+<i>The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful.</i>
 
-Paine
+Roy Mustang
