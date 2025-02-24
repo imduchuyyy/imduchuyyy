@@ -1,3 +1,3 @@
-<i>The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful.</i>
+<i>Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high.</i>
 
-Roy Mustang
+Hinata Miyake
