@@ -1,3 +1,3 @@
-<i>Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high.</i>
+<i>I attribute my success to this: I never gave or took any excuse.</i>
 
-Hinata Miyake
+Florence Nightingale
