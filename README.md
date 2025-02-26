@@ -1,3 +1,3 @@
-<i>I attribute my success to this: I never gave or took any excuse.</i>
+<i>There is only one way to avoid criticism: do nothing, say nothing, and be nothing.</i>
 
-Florence Nightingale
+Aristotle
