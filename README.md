@@ -1,3 +1,3 @@
-<i>There is only one way to avoid criticism: do nothing, say nothing, and be nothing.</i>
+<i>If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.</i>
 
-Aristotle
+Alibaba Saluja
