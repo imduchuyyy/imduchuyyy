@@ -1,3 +1,3 @@
-<i>Whatever you do, enjoy it to the fullest. That is the secret of life.</i>
+<i>There is only one way to avoid criticism: do nothing, say nothing, and be nothing.</i>
 
-Rider
+Aristotle
