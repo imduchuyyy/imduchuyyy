@@ -1,3 +1,3 @@
-<i>There is only one way to avoid criticism: do nothing, say nothing, and be nothing.</i>
+<i>You miss 100% of the shots you don’t take.</i>
 
-Aristotle
+Wayne Gretzky
