@@ -1,3 +1,3 @@
-<i>You miss 100% of the shots you don’t take.</i>
+<i>Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.</i>
 
-Wayne Gretzky
+Booker T. Washington
