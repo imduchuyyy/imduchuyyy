@@ -1,3 +1,3 @@
-<i>This World Is Cruel And It s Also Very Beautiful</i>
+<i>Strive not to be a success, but rather to be of value.</i>
 
-Mikasa
+Albert Einstein
