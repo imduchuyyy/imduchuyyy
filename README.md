@@ -1,3 +1,3 @@
-<i>It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.</i>
+<i>It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight</i>
 
-Ann Landers
+Eren
