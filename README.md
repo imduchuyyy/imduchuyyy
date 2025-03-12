@@ -1,3 +1,3 @@
-<i>It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight</i>
+<i>Go confidently in the direction of your dreams.  Live the life you have imagined.</i>
 
-Eren
+Henry David Thoreau
