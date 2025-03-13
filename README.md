@@ -1,3 +1,3 @@
-<i>Go confidently in the direction of your dreams.  Live the life you have imagined.</i>
+<i>I didn’t fail the test. I just found 100 ways to do it wrong.</i>
 
-Henry David Thoreau
+Benjamin Franklin
