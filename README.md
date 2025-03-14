@@ -1,3 +1,3 @@
-<i>I didn’t fail the test. I just found 100 ways to do it wrong.</i>
+<i>Either you run the day, or the day runs you.</i>
 
-Benjamin Franklin
+Jim Rohn
