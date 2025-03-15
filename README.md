@@ -1,3 +1,3 @@
-<i>Either you run the day, or the day runs you.</i>
+<i>When you give up, that’s when the game ends.</i>
 
-Jim Rohn
+Mitsuyoshi Anzai
