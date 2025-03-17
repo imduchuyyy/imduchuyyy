@@ -1,3 +1,3 @@
-<i>The only way to do great work is to love what you do.</i>
+<i>It is at the moment of death that humanity has value.</i>
 
-Steve Jobs
+Archer
