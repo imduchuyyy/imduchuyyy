@@ -1,3 +1,3 @@
-<i>Protecting someone means giving them a place to belong. Giving them a place where they can be happy.</i>
+<i>If you can’t find a reason to fight, then you shouldn’t be fighting.</i>
 
-Princess Lenessia
+Akame
