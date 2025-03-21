@@ -1,3 +1,3 @@
-<i>You can fly even higher</i>
+<i>People who can’t throw something important away, can never hope to change anything.</i>
 
-Tobio Kageyama
+Armin Arlelt
