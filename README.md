@@ -1,3 +1,3 @@
-<i>Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness.</i>
+<i>Too many of us are not living our dreams because we are living our fears.</i>
 
-Gilgamesh
+Les Brown
