@@ -1,3 +1,3 @@
-<i>Too many of us are not living our dreams because we are living our fears.</i>
+<i>A place where someone still thinks about you is a place you can call home.</i>
 
-Les Brown
+Jiraiya
