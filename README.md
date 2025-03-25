@@ -1,3 +1,3 @@
-<i>A place where someone still thinks about you is a place you can call home.</i>
+<i>Vision is not what your eyes see, but an image that your brain comprehends.</i>
 
-Jiraiya
+Touko Aozaki
