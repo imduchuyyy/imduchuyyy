@@ -1,3 +1,3 @@
-<i>Vision is not what your eyes see, but an image that your brain comprehends.</i>
+<i>Being weak means that there is room to grow</i>
 
-Touko Aozaki
+Ittetsu Takeda
