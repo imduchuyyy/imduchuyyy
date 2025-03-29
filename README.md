@@ -1,3 +1,3 @@
-<i>Fall seven times and stand up eight.</i>
+<i>I didn’t fail the test. I just found 100 ways to do it wrong.</i>
 
-Japanese Proverb
+Benjamin Franklin
