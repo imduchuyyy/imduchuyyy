@@ -1,3 +1,3 @@
-<i>I didn’t fail the test. I just found 100 ways to do it wrong.</i>
+<i>The only way to do great work is to love what you do.</i>
 
-Benjamin Franklin
+Steve Jobs
