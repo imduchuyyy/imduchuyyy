@@ -1,3 +1,3 @@
-<i>The only way to do great work is to love what you do.</i>
+<i>Every child is an artist.  The problem is how to remain an artist once he grows up.</i>
 
-Steve Jobs
+Pablo Picasso
