@@ -1,3 +1,3 @@
-<i>Every child is an artist.  The problem is how to remain an artist once he grows up.</i>
+<i>Power comes in response to a need, not a desire. You have to create that need.</i>
 
-Pablo Picasso
+Goku
