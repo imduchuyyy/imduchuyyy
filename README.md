@@ -1,3 +1,3 @@
-<i>Power comes in response to a need, not a desire. You have to create that need.</i>
+<i>The only limit to our realization of tomorrow will be our doubts of today.</i>
 
-Goku
+Franklin D. Roosevelt
