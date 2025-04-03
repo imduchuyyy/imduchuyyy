@@ -1,3 +1,3 @@
-<i>The only limit to our realization of tomorrow will be our doubts of today.</i>
+<i>If You Win You Live If You Lose You Die If You Don t Fight You Can t Win</i>
 
-Franklin D. Roosevelt
+Eren
