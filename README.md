@@ -1,3 +1,3 @@
-<i>If You Win You Live If You Lose You Die If You Don t Fight You Can t Win</i>
+<i>Life is like a tube of toothpaste. When you’ve used all the toothpaste down to the last squeeze, that’s when you’ve really lived. Live with all your might, and struggle as long as you have life.</i>
 
-Eren
+Mion Sonozaki
