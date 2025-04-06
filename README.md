@@ -1,3 +1,3 @@
-<i>It’s just pathetic to give up on something before you even give it a shot.</i>
+<i>The best revenge is massive success.</i>
 
-Reiko Mikami
+Frank Sinatra
