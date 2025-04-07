@@ -1,3 +1,3 @@
-<i>The best revenge is massive success.</i>
+<i>The only person you are destined to become is the person you decide to be.</i>
 
-Frank Sinatra
+Ralph Waldo Emerson
