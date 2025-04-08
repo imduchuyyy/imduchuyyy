@@ -1,3 +1,3 @@
-<i>The only person you are destined to become is the person you decide to be.</i>
+<i>Whatever you do, enjoy it to the fullest. That is the secret of life.</i>
 
-Ralph Waldo Emerson
+Rider
