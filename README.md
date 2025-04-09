@@ -1,3 +1,3 @@
-<i>Whatever you do, enjoy it to the fullest. That is the secret of life.</i>
+<i>Change your thoughts and you change your world.</i>
 
-Rider
+Norman Vincent Peale
