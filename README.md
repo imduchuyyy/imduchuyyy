@@ -1,3 +1,3 @@
-<i>Change your thoughts and you change your world.</i>
+<i>Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.</i>
 
-Norman Vincent Peale
+Albert Schweitzer
