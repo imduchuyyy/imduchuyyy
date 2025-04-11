@@ -1,3 +1,3 @@
-<i>Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.</i>
+<i>If You Win You Live If You Lose You Die If You Don t Fight You Can t Win</i>
 
-Albert Schweitzer
+Eren
