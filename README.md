@@ -1,3 +1,3 @@
-<i>If You Win You Live If You Lose You Die If You Don t Fight You Can t Win</i>
+<i>If you do what you’ve always done, you’ll get what you’ve always gotten.</i>
 
-Eren
+Tony Robbins
