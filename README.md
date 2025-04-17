@@ -1,3 +1,3 @@
-<i>Hard work is worthless for those that don’t believe in themselves.</i>
+<i>Fall seven times and stand up eight.</i>
 
-Naruto Uzumaki
+Japanese Proverb
