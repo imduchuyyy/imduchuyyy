@@ -1,3 +1,3 @@
-<i>Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin</i>
+<i>I have learned over the years that when one’s mind is made up, this diminishes fear.</i>
 
-Kenny Ackerman
+Rosa Parks
