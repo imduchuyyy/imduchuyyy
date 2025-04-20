@@ -1,3 +1,3 @@
-<i>I have learned over the years that when one’s mind is made up, this diminishes fear.</i>
+<i>There is only one way to avoid criticism: do nothing, say nothing, and be nothing.</i>
 
-Rosa Parks
+Aristotle
