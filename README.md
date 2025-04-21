@@ -1,3 +1,3 @@
-<i>There is only one way to avoid criticism: do nothing, say nothing, and be nothing.</i>
+<i>When you give up, that’s when the game ends.</i>
 
-Aristotle
+Mitsuyoshi Anzai
