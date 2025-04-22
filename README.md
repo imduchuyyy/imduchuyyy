@@ -1,3 +1,3 @@
-<i>When you give up, that’s when the game ends.</i>
+<i>Protecting someone means giving them a place to belong. Giving them a place where they can be happy.</i>
 
-Mitsuyoshi Anzai
+Princess Lenessia
