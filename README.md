@@ -1,3 +1,3 @@
-<i>Protecting someone means giving them a place to belong. Giving them a place where they can be happy.</i>
+<i>Don’t beg for things. Do it yourself, or else you won’t get anything.</i>
 
-Princess Lenessia
+Renton Thurston
