@@ -1,3 +1,3 @@
-<i>Don’t beg for things. Do it yourself, or else you won’t get anything.</i>
+<i>A truly rich man is one whose children run into his arms when his hands are empty.</i>
 
-Renton Thurston
+Unknown
