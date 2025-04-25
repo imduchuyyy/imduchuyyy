@@ -1,3 +1,3 @@
-<i>A truly rich man is one whose children run into his arms when his hands are empty.</i>
+<i>Nothing is impossible, the word itself says, “I’m possible!”</i>
 
-Unknown
+–Audrey Hepburn
