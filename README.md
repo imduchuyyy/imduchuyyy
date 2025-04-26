@@ -1,3 +1,3 @@
-<i>Nothing is impossible, the word itself says, “I’m possible!”</i>
+<i>You can die anytime, but living takes true courage.</i>
 
-–Audrey Hepburn
+Himura Kenshin
