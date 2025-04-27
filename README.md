@@ -1,3 +1,3 @@
-<i>You can die anytime, but living takes true courage.</i>
+<i>Every strike brings me closer to the next home run.</i>
 
-Himura Kenshin
+Babe Ruth
