@@ -1,3 +1,3 @@
-<i>Every strike brings me closer to the next home run.</i>
+<i>We can’t help everyone, but everyone can help someone.</i>
 
-Babe Ruth
+Ronald Reagan
