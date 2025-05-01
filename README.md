@@ -1,3 +1,3 @@
-<i>People become stronger because they have memories they can’t forget.</i>
+<i>Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.</i>
 
-Tsunade
+Mavis Vermillion
