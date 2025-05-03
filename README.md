@@ -1,3 +1,3 @@
-<i>There’s no shame in falling down! True shame is to not stand up again!</i>
+<i>If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision.</i>
 
-Shintar Midorima
+Erwin Smith
