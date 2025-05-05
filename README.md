@@ -1,3 +1,3 @@
-<i>A person who never made a mistake never tried anything new.</i>
+<i>Don’t give up, there’s no shame in falling down! True shame is to not stand up again!</i>
 
- Albert Einstein
+Shintaro Midorima
