@@ -1,3 +1,3 @@
-<i>Don’t give up, there’s no shame in falling down! True shame is to not stand up again!</i>
+<i>Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.</i>
 
-Shintaro Midorima
+Jamie Paolinetti
