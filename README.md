@@ -1,3 +1,3 @@
-<i>Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.</i>
+<i>If you really want to be strong… Stop caring about what your surrounding thinks of you!</i>
 
-Jamie Paolinetti
+Saitama
