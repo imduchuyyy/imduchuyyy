@@ -1,3 +1,3 @@
-<i>If you really want to be strong… Stop caring about what your surrounding thinks of you!</i>
+<i>I would rather die of passion than of boredom.</i>
 
-Saitama
+Vincent van Gogh
