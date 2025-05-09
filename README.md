@@ -1,3 +1,3 @@
-<i>I would rather die of passion than of boredom.</i>
+<i>The greatest glory in living lies not in never falling, but in rising every time we fall.</i>
 
-Vincent van Gogh
+Nelson Mandela
