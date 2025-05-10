@@ -1,3 +1,3 @@
-<i>The greatest glory in living lies not in never falling, but in rising every time we fall.</i>
+<i>The best time to plant a tree was 20 years ago. The second best time is now.</i>
 
-Nelson Mandela
+Chinese Proverb
