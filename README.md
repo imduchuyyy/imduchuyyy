@@ -1,3 +1,3 @@
-<i>If you don’t take risks, you can’t create a future!</i>
+<i>Believe you can and you’re halfway there.</i>
 
-Monkey D Luffy
+Theodore Roosevelt
