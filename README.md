@@ -1,3 +1,3 @@
-<i>Believe you can and you’re halfway there.</i>
+<i>Everything has beauty, but not everyone can see.</i>
 
-Theodore Roosevelt
+Confucius
