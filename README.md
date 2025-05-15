@@ -1,3 +1,3 @@
-<i>It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.</i>
+<i>If you don’t take risks, you can’t create a future!</i>
 
-Ann Landers
+Monkey D Luffy
