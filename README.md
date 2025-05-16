@@ -1,3 +1,3 @@
-<i>If you don’t take risks, you can’t create a future!</i>
+<i>I’ll leave tomorrow’s problems to tomorrow’s me.</i>
 
-Monkey D Luffy
+Saitama
