@@ -1,3 +1,3 @@
-<i>I’ll leave tomorrow’s problems to tomorrow’s me.</i>
+<i>The mind is everything. What you think you become.</i>
 
-Saitama
+Buddha
