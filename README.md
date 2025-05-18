@@ -1,3 +1,3 @@
-<i>The mind is everything. What you think you become.</i>
+<i>Go confidently in the direction of your dreams.  Live the life you have imagined.</i>
 
-Buddha
+Henry David Thoreau
