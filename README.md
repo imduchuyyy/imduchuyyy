@@ -1,3 +1,3 @@
-<i>Go confidently in the direction of your dreams.  Live the life you have imagined.</i>
+<i>Life s a bore if you don t challenge yourself</i>
 
-Henry David Thoreau
+Yuu Nishinoya
