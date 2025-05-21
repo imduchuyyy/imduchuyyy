@@ -1,3 +1,3 @@
-<i>Don’t give up, there’s no shame in falling down! True shame is to not stand up again!</i>
+<i>I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.</i>
 
-Shintaro Midorima
+Maya Angelou
