@@ -1,3 +1,3 @@
-<i>I didn’t fail the test. I just found 100 ways to do it wrong.</i>
+<i>If the wind will not serve, take to the oars.</i>
 
-Benjamin Franklin
+Latin Proverb
