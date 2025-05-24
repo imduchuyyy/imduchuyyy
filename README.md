@@ -1,3 +1,3 @@
-<i>If the wind will not serve, take to the oars.</i>
+<i>It is never too late to be what you might have been.</i>
 
-Latin Proverb
+George Eliot
