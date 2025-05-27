@@ -1,3 +1,3 @@
-<i>Reject common sense to make the impossible possible.</i>
+<i>The only limit to our realization of tomorrow will be our doubts of today.</i>
 
-Simon
+Franklin D. Roosevelt
