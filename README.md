@@ -1,3 +1,3 @@
-<i>The only limit to our realization of tomorrow will be our doubts of today.</i>
+<i>Challenges are what make life interesting and overcoming them is what makes life meaningful.</i>
 
-Franklin D. Roosevelt
+Joshua J. Marine
