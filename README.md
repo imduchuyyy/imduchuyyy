@@ -1,3 +1,3 @@
-<i>Challenges are what make life interesting and overcoming them is what makes life meaningful.</i>
+<i>We can’t help everyone, but everyone can help someone.</i>
 
-Joshua J. Marine
+Ronald Reagan
