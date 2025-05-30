@@ -1,3 +1,3 @@
-<i>We can’t help everyone, but everyone can help someone.</i>
+<i>Life is what we make it, always has been, always will be.</i>
 
-Ronald Reagan
+Grandma Moses
