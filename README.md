@@ -1,3 +1,3 @@
-<i>Believe you can and you're halfway there.</i>
+<i>Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.</i>
 
-Theodore Roosevelt
+Jamie Paolinetti
