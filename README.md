@@ -1,3 +1,3 @@
-<i>The greatest pleasure in life is doing what people say you cannot do.</i>
+<i>People, who can’t throw something important away, can never hope to change anything.</i>
 
-Walter Bagehot
+Armin Arlert
