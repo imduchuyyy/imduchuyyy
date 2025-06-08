@@ -1,3 +1,3 @@
-<i>It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight</i>
+<i>If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.</i>
 
-Eren
+Alibaba Saluja
