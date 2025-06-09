@@ -1,3 +1,3 @@
-<i>If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.</i>
+<i>Life shrinks or expands in proportion to one’s courage.</i>
 
-Alibaba Saluja
+Anais Nin
