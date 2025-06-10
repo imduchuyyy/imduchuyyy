@@ -1,3 +1,3 @@
-<i>Life shrinks or expands in proportion to one’s courage.</i>
+<i>If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough.</i>
 
-Anais Nin
+Oprah Winfrey
