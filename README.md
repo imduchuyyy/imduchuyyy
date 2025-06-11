@@ -1,3 +1,3 @@
-<i>If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough.</i>
+<i>It’s just pathetic to give up on something before you even give it a shot.</i>
 
-Oprah Winfrey
+Reiko Mikami
