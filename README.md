@@ -1,3 +1,3 @@
-<i>It’s just pathetic to give up on something before you even give it a shot.</i>
+<i>Every journey begins with a single step. We just have to have patience.</i>
 
-Reiko Mikami
+Milly Thompson
