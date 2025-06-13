@@ -1,3 +1,3 @@
-<i>Every journey begins with a single step. We just have to have patience.</i>
+<i>Dreaming, after all, is a form of planning.</i>
 
-Milly Thompson
+Gloria Steinem
