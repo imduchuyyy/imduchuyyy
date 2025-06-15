@@ -1,3 +1,3 @@
-<i>It’s not the years in your life that count. It’s the life in your years.</i>
+<i>Giving up kills people. When people reject giving up… they finally win the right to transcend humanity.</i>
 
-Abraham Lincoln
+Alucard
