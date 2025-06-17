@@ -1,3 +1,3 @@
-<i>A dropout will beat a genius through hard work.</i>
+<i>You may be disappointed if you fail, but you are doomed if you don’t try.</i>
 
-Rock Lee
+Beverly Sills
