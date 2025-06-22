@@ -1,3 +1,3 @@
-<i>If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas.</i>
+<i>Definiteness of purpose is the starting point of all achievement.</i>
 
-Alibaba Saluja
+W. Clement Stone
