@@ -1,3 +1,3 @@
-<i>Definiteness of purpose is the starting point of all achievement.</i>
+<i>If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.</i>
 
-W. Clement Stone
+Sheryl Sandberg
