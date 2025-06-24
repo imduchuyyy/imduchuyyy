@@ -1,3 +1,3 @@
-<i>If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.</i>
+<i>In the middle of every difficulty lies opportunity.</i>
 
-Sheryl Sandberg
+Albert Einstein
