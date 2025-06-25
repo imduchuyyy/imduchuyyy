@@ -1,3 +1,3 @@
-<i>In the middle of every difficulty lies opportunity.</i>
+<i>This World Is Cruel And It s Also Very Beautiful</i>
 
-Albert Einstein
+Mikasa
