@@ -1,3 +1,3 @@
-<i>This World Is Cruel And It s Also Very Beautiful</i>
+<i>Vision is not what your eyes see, but an image that your brain comprehends.</i>
 
-Mikasa
+Touko Aozaki
