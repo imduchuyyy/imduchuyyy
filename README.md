@@ -1,3 +1,3 @@
-<i>Vision is not what your eyes see, but an image that your brain comprehends.</i>
+<i>No matter how hard or impossible it is, never lose sight of your goal.</i>
 
-Touko Aozaki
+Monkey D Luffy
