@@ -1,3 +1,3 @@
-<i>No matter how hard or impossible it is, never lose sight of your goal.</i>
+<i>A truly rich man is one whose children run into his arms when his hands are empty.</i>
 
-Monkey D Luffy
+Unknown
