@@ -1,3 +1,3 @@
-<i>A truly rich man is one whose children run into his arms when his hands are empty.</i>
+<i>You take your life in your own hands, and what happens? A terrible thing, no one to blame.</i>
 
-Unknown
+Erica Jong
