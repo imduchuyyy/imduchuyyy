@@ -1,3 +1,3 @@
-<i>You take your life in your own hands, and what happens? A terrible thing, no one to blame.</i>
+<i>A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own.</i>
 
-Erica Jong
+Jiraiya
