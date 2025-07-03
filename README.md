@@ -1,3 +1,3 @@
-<i>Either write something worth reading or do something worth writing.</i>
+<i>Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it.</i>
 
-Benjamin Franklin
+Johann Wolfgang von Goethe
