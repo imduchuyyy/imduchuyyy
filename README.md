@@ -1,3 +1,3 @@
-<i>Challenges are what make life interesting and overcoming them is what makes life meaningful.</i>
+<i>Certain things catch your eye, but pursue only those that capture the heart.</i>
 
-Joshua J. Marine
+ Ancient Indian Proverb
