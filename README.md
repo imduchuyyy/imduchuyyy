@@ -1,3 +1,3 @@
-<i>The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at.</i>
+<i>“A lesson without pain is meaningless. That’s because no one can gain without sacrificing something. But by enduring that pain and overcoming it, he shall obtain a powerful, unmatched heart.</i>
 
-Jesse Owens
+Edward Elric 
