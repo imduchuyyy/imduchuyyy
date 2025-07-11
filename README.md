@@ -1,3 +1,3 @@
-<i>If you don’t take risks, you can’t create a future!</i>
+<i>The only person you are destined to become is the person you decide to be.</i>
 
-Monkey D Luffy
+Ralph Waldo Emerson
