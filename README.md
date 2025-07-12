@@ -1,3 +1,3 @@
-<i>The only person you are destined to become is the person you decide to be.</i>
+<i>Success is not final, failure is not fatal: It is the courage to continue that counts.</i>
 
-Ralph Waldo Emerson
+Winston Churchill
