@@ -1,3 +1,3 @@
-<i>Success is not final, failure is not fatal: It is the courage to continue that counts.</i>
+<i>When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.</i>
 
-Winston Churchill
+Henry Ford
