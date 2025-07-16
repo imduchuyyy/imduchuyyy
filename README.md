@@ -1,3 +1,3 @@
-<i>Whatever you do, enjoy it to the fullest. That is the secret of life.</i>
+<i>You can die anytime, but living takes true courage.</i>
 
-Rider
+Kenshin Himura
