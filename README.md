@@ -1,3 +1,3 @@
-<i>You can die anytime, but living takes true courage.</i>
+<i>I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person</i>
 
-Kenshin Himura
+Armin Arlert
