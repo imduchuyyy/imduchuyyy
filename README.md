@@ -1,3 +1,3 @@
-<i>I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person</i>
+<i>If you just submit yourself to fate, then that’s the end of it.</i>
 
-Armin Arlert
+Keiichi Maebara
