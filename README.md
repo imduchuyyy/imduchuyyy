@@ -1,3 +1,3 @@
-<i>If you just submit yourself to fate, then that’s the end of it.</i>
+<i>When I let go of what I am, I become what I might be.</i>
 
-Keiichi Maebara
+Lao Tzu
