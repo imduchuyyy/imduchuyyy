@@ -1,3 +1,3 @@
-<i>As Long As We Continue To Fight We Are Not Defeated</i>
+<i>If you can’t do something, then don’t. Focus on what you can do.</i>
 
-Miche Zacharius
+Shiroe
