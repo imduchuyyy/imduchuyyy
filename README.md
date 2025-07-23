@@ -1,3 +1,3 @@
-<i>If you can’t do something, then don’t. Focus on what you can do.</i>
+<i>The best time to plant a tree was 20 years ago. The second best time is now.</i>
 
-Shiroe
+Chinese Proverb
