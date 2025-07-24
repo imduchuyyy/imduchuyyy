@@ -1,3 +1,3 @@
-<i>The best time to plant a tree was 20 years ago. The second best time is now.</i>
+<i>People, who can’t throw something important away, can never hope to change anything.</i>
 
-Chinese Proverb
+Armin Arlert
