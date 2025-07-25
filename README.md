@@ -1,3 +1,3 @@
-<i>People, who can’t throw something important away, can never hope to change anything.</i>
+<i>Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness.</i>
 
-Armin Arlert
+Gilgamesh
