@@ -1,3 +1,3 @@
-<i>It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight</i>
+<i>Our lives begin to end the day we become silent about things that matter.</i>
 
-Eren
+Martin Luther King Jr.
