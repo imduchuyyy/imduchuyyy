@@ -1,3 +1,3 @@
-<i>Our lives begin to end the day we become silent about things that matter.</i>
+<i>Nothing is impossible, the word itself says, “I’m possible!”</i>
 
-Martin Luther King Jr.
+–Audrey Hepburn
