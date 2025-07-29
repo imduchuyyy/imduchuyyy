@@ -1,3 +1,3 @@
-<i>Nothing is impossible, the word itself says, “I’m possible!”</i>
+<i>Believe you can and you’re halfway there.</i>
 
-–Audrey Hepburn
+Theodore Roosevelt
