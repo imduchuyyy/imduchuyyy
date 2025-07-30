@@ -1,3 +1,3 @@
-<i>Believe you can and you’re halfway there.</i>
+<i>In order to succeed, your desire for success should be greater than your fear of failure.</i>
 
-Theodore Roosevelt
+Bill Cosby
