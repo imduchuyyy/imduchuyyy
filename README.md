@@ -1,3 +1,3 @@
-<i>Whether you think you can or you think you can’t, you’re right.</i>
+<i>Whatever you lose, you’ll find it again. But what you throw away you’ll never get back.</i>
 
-Henry Ford
+Kenshin Himura
