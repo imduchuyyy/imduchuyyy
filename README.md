@@ -1,3 +1,3 @@
-<i>It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live.</i>
+<i>If you don’t share someone’s pain, you can never understand them.</i>
 
-Mae Jemison
+Nagato
