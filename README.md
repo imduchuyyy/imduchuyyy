@@ -1,3 +1,3 @@
-<i>If you don’t share someone’s pain, you can never understand them.</i>
+<i>If you wanna make people dream, you’ve gotta start by believing in that dream yourself!</i>
 
-Nagato
+Seiya Kanie
