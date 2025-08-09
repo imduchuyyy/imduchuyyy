@@ -1,3 +1,3 @@
-<i>If you wanna make people dream, you’ve gotta start by believing in that dream yourself!</i>
+<i>We must balance conspicuous consumption with conscious capitalism.</i>
 
-Seiya Kanie
+Kevin Kruse
