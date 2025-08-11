@@ -1,3 +1,3 @@
-<i>Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high.</i>
+<i>Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever!</i>
 
-Hinata Miyake
+Izuku Midoriya
