@@ -1,3 +1,3 @@
-<i>Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever!</i>
+<i>If you really want to be strong… Stop caring about what your surrounding thinks of you!</i>
 
-Izuku Midoriya
+Saitama
