@@ -1,3 +1,3 @@
-<i>If you really want to be strong… Stop caring about what your surrounding thinks of you!</i>
+<i>Life shrinks or expands in proportion to one’s courage.</i>
 
-Saitama
+Anais Nin
