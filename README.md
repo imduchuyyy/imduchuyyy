@@ -1,3 +1,3 @@
-<i>Life shrinks or expands in proportion to one’s courage.</i>
+<i>When you lose sight of your path, listen for the destination in your heart.</i>
 
-Anais Nin
+Allen Walker
