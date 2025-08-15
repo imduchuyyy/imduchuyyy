@@ -1,3 +1,3 @@
-<i>When you lose sight of your path, listen for the destination in your heart.</i>
+<i>The ticket to the future is always open.</i>
 
-Allen Walker
+Vash The Stampede
