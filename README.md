@@ -1,3 +1,3 @@
-<i>The ticket to the future is always open.</i>
+<i>The only person you are destined to become is the person you decide to be.</i>
 
-Vash The Stampede
+Ralph Waldo Emerson
