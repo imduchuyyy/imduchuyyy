@@ -1,3 +1,3 @@
-<i>You can’t use up creativity.  The more you use, the more you have.</i>
+<i>Every child is an artist.  The problem is how to remain an artist once he grows up.</i>
 
-Maya Angelou
+Pablo Picasso
