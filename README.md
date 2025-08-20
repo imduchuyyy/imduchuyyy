@@ -1,3 +1,3 @@
-<i>Every child is an artist.  The problem is how to remain an artist once he grows up.</i>
+<i>If you don’t share someone’s pain, you can never understand them.</i>
 
-Pablo Picasso
+Nagato
