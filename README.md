@@ -1,3 +1,3 @@
-<i>If you don’t share someone’s pain, you can never understand them.</i>
+<i>You can’t use up creativity.  The more you use, the more you have.</i>
 
-Nagato
+Maya Angelou
