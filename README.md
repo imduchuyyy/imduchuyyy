@@ -1,3 +1,3 @@
-<i>You can’t use up creativity.  The more you use, the more you have.</i>
+<i>Either you run the day, or the day runs you.</i>
 
-Maya Angelou
+Jim Rohn
