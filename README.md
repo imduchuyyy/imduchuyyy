@@ -1,3 +1,3 @@
-<i>Either you run the day, or the day runs you.</i>
+<i>Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.</i>
 
-Jim Rohn
+Jamie Paolinetti
