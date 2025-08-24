@@ -1,3 +1,3 @@
-<i>Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless.</i>
+<i>The two most important days in your life are the day you are born and the day you find out why.</i>
 
-Jamie Paolinetti
+Mark Twain
