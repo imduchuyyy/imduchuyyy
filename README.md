@@ -1,3 +1,3 @@
-<i>The two most important days in your life are the day you are born and the day you find out why.</i>
+<i>It does not matter how slowly you go as long as you do not stop.</i>
 
-Mark Twain
+Confucius
