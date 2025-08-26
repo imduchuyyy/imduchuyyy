@@ -1,3 +1,3 @@
-<i>It does not matter how slowly you go as long as you do not stop.</i>
+<i>To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.</i>
 
-Confucius
+Matsumoto Rangiku
