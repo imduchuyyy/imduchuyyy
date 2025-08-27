@@ -1,3 +1,3 @@
-<i>To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have.</i>
+<i>If you do what you’ve always done, you’ll get what you’ve always gotten.</i>
 
-Matsumoto Rangiku
+Tony Robbins
