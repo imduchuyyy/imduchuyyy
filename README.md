@@ -1,3 +1,3 @@
-<i>If you do what you’ve always done, you’ll get what you’ve always gotten.</i>
+<i>You miss 100% of the shots you don’t take.</i>
 
-Tony Robbins
+Wayne Gretzky
