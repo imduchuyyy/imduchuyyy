@@ -1,3 +1,3 @@
-<i>You miss 100% of the shots you don’t take.</i>
+<i>In order to succeed, your desire for success should be greater than your fear of failure.</i>
 
-Wayne Gretzky
+Bill Cosby
