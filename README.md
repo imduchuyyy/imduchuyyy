@@ -1,3 +1,3 @@
-<i>In order to succeed, your desire for success should be greater than your fear of failure.</i>
+<i>Strive not to be a success, but rather to be of value.</i>
 
-Bill Cosby
+Albert Einstein
