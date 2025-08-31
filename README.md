@@ -1,3 +1,3 @@
-<i>Strive not to be a success, but rather to be of value.</i>
+<i>Forgetting is like a wound. The wound may heal, but it has already left a scar.</i>
 
-Albert Einstein
+Monkey D Luffy
