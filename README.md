@@ -1,3 +1,3 @@
-<i>Forgetting is like a wound. The wound may heal, but it has already left a scar.</i>
+<i>The only way to do great work is to love what you do.</i>
 
-Monkey D Luffy
+Steve Jobs
