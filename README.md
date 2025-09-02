@@ -1,3 +1,3 @@
-<i>The only way to do great work is to love what you do.</i>
+<i>There are no traffic jams along the extra mile.</i>
 
-Steve Jobs
+Roger Staubach
