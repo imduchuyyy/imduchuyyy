@@ -1,3 +1,3 @@
-<i>I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for.</i>
+<i>A dropout will beat a genius through hard work.</i>
 
-Julis Alexia Van Riessfeld
+Rock Lee
