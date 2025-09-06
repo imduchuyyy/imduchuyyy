@@ -1,3 +1,3 @@
-<i>A dropout will beat a genius through hard work.</i>
+<i>Change your thoughts and you change your world.</i>
 
-Rock Lee
+Norman Vincent Peale
