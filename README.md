@@ -1,3 +1,3 @@
-<i>Being weak means that there is room to grow</i>
+<i>When you give up, that’s when the game ends.</i>
 
-Ittetsu Takeda
+Mitsuyoshi Anzai
