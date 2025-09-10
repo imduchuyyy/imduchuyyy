@@ -1,3 +1,3 @@
-<i>When you give up, that’s when the game ends.</i>
+<i>Start where you are. Use what you have.  Do what you can.</i>
 
-Mitsuyoshi Anzai
+Arthur Ashe
