@@ -1,3 +1,3 @@
-<i>Start where you are. Use what you have.  Do what you can.</i>
+<i>It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight</i>
 
-Arthur Ashe
+Eren
