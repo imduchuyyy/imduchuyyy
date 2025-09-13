@@ -1,3 +1,3 @@
-<i>I am not a product of my circumstances. I am a product of my decisions.</i>
+<i>If You Win You Live If You Lose You Die If You Don t Fight You Can t Win</i>
 
-Stephen Covey
+Eren
