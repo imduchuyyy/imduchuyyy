@@ -1,3 +1,3 @@
-<i>If You Win You Live If You Lose You Die If You Don t Fight You Can t Win</i>
+<i>Life s a bore if you don t challenge yourself</i>
 
-Eren
+Yuu Nishinoya
