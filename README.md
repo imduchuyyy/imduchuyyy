@@ -1,3 +1,3 @@
-<i>Life s a bore if you don t challenge yourself</i>
+<i>Today might be the chance to grasp the chance to let your talent bloom</i>
 
-Yuu Nishinoya
+Tooru Oikawa
