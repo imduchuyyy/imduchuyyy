@@ -1,3 +1,3 @@
-<i>Change your thoughts and you change your world.</i>
+<i>Forgetting is like a wound. The wound may heal, but it has already left a scar.</i>
 
-Norman Vincent Peale
+Monkey D Luffy
