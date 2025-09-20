@@ -1,3 +1,3 @@
-<i>Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder.</i>
+<i>Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness.</i>
 
-Gildarts Clive
+Gilgamesh
