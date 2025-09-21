@@ -1,3 +1,3 @@
-<i>Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness.</i>
+<i>If you can’t find a reason to fight, then you shouldn’t be fighting.</i>
 
-Gilgamesh
+Akame
