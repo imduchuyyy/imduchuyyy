@@ -1,3 +1,3 @@
-<i>If you can’t find a reason to fight, then you shouldn’t be fighting.</i>
+<i>The only person you are destined to become is the person you decide to be.</i>
 
-Akame
+Ralph Waldo Emerson
