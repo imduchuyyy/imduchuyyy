@@ -1,3 +1,3 @@
-<i>The only person you are destined to become is the person you decide to be.</i>
+<i>If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough.</i>
 
-Ralph Waldo Emerson
+Oprah Winfrey
