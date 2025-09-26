@@ -1,3 +1,3 @@
-<i>Vision is not what your eyes see, but an image that your brain comprehends.</i>
+<i>It is at the moment of death that humanity has value.</i>
 
-Touko Aozaki
+Archer
