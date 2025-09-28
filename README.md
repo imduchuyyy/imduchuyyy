@@ -1,3 +1,3 @@
-<i>If There Are Humans Who Can Bring About Change They re Those Who Are Capable Of Abandoning Everything People Who When Required To Surpass Even Monsters Are Capable Of Tossing Aside Their Very Humanity</i>
+<i>Thinking you’re no-good and worthless is the worst thing you can do</i>
 
-Armin Arlert
+Nobito
