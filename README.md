@@ -1,3 +1,3 @@
-<i>Thinking you’re no-good and worthless is the worst thing you can do</i>
+<i>I am not a product of my circumstances. I am a product of my decisions.</i>
 
-Nobito
+Stephen Covey
