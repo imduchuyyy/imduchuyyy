@@ -1,3 +1,3 @@
-<i>I am not a product of my circumstances. I am a product of my decisions.</i>
+<i>Life s a bore if you don t challenge yourself</i>
 
-Stephen Covey
+Yuu Nishinoya
