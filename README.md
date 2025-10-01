@@ -1,3 +1,3 @@
-<i>Life s a bore if you don t challenge yourself</i>
+<i>You can’t always hold on to the things that are important. By letting them go we gain something else.</i>
 
-Yuu Nishinoya
+Kunio Yaobi
