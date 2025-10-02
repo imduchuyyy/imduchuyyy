@@ -1,3 +1,3 @@
-<i>You can’t always hold on to the things that are important. By letting them go we gain something else.</i>
+<i>Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever!</i>
 
-Kunio Yaobi
+Izuku Midoriya
