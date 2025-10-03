@@ -1,3 +1,3 @@
-<i>Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever!</i>
+<i>Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.</i>
 
-Izuku Midoriya
+Booker T. Washington
