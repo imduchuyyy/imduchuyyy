@@ -1,3 +1,3 @@
-<i>Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.</i>
+<i>Life is what happens to you while you’re busy making other plans.</i>
 
-Booker T. Washington
+John Lennon
