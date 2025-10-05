@@ -1,3 +1,3 @@
-<i>Life is what happens to you while you’re busy making other plans.</i>
+<i>Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high.</i>
 
-John Lennon
+Hinata Miyake
