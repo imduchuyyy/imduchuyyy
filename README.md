@@ -1,3 +1,3 @@
-<i>No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least</i>
+<i>If the wind will not serve, take to the oars.</i>
 
-Levi Ackerman
+Latin Proverb
