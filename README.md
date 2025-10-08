@@ -1,3 +1,3 @@
-<i>If the wind will not serve, take to the oars.</i>
+<i>We become what we think about.</i>
 
-Latin Proverb
+Earl Nightingale
