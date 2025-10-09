@@ -1,3 +1,3 @@
-<i>We become what we think about.</i>
+<i>Every journey begins with a single step. We just have to have patience.</i>
 
-Earl Nightingale
+Milly Thompson
