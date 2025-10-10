@@ -1,3 +1,3 @@
-<i>Every journey begins with a single step. We just have to have patience.</i>
+<i>You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face.</i>
 
-Milly Thompson
+Roronoa Zoro
