@@ -1,3 +1,3 @@
-<i>You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face.</i>
+<i>Remember that not getting what you want is sometimes a wonderful stroke of luck.</i>
 
-Roronoa Zoro
+Dalai Lama
