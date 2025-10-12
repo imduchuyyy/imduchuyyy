@@ -1,3 +1,3 @@
-<i>Remember that not getting what you want is sometimes a wonderful stroke of luck.</i>
+<i>Strive not to be a success, but rather to be of value.</i>
 
-Dalai Lama
+Albert Einstein
