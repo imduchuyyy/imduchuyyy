@@ -1,3 +1,3 @@
-<i>Strive not to be a success, but rather to be of value.</i>
+<i>Either you run the day, or the day runs you.</i>
 
-Albert Einstein
+Jim Rohn
