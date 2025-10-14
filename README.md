@@ -1,3 +1,3 @@
-<i>Either you run the day, or the day runs you.</i>
+<i>Being weak is nothing to be ashamed of… Staying weak is !!</i>
 
-Jim Rohn
+Fuegoleon Vermillion
