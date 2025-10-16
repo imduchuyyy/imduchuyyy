@@ -1,3 +1,3 @@
-<i>Being weak is nothing to be ashamed of… Staying weak is !!</i>
+<i>Change your thoughts and you change your world.</i>
 
-Fuegoleon Vermillion
+Norman Vincent Peale
