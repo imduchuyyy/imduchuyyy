@@ -1,3 +1,3 @@
-<i>Change your thoughts and you change your world.</i>
+<i>You can’t always hold on to the things that are important. By letting them go we gain something else.</i>
 
-Norman Vincent Peale
+Kunio Yaobi
