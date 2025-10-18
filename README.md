@@ -1,3 +1,3 @@
-<i>You can’t always hold on to the things that are important. By letting them go we gain something else.</i>
+<i>The best time to plant a tree was 20 years ago. The second best time is now.</i>
 
-Kunio Yaobi
+Chinese Proverb
