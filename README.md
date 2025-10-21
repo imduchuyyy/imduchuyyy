@@ -1,3 +1,3 @@
-<i>Protecting someone means giving them a place to belong. Giving them a place where they can be happy.</i>
+<i>An unexamined life is not worth living.</i>
 
-Princess Lenessia
+Socrates
