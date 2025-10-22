@@ -1,3 +1,3 @@
-<i>An unexamined life is not worth living.</i>
+<i>You miss 100% of the shots you don’t take.</i>
 
-Socrates
+Wayne Gretzky
