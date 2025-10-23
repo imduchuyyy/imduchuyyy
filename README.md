@@ -1,3 +1,3 @@
-<i>You miss 100% of the shots you don’t take.</i>
+<i>You can’t always hold on to the things that are important. By letting them go we gain something else.</i>
 
-Wayne Gretzky
+Kunio Yaobi
