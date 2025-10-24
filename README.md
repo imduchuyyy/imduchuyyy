@@ -1,3 +1,3 @@
-<i>You can’t always hold on to the things that are important. By letting them go we gain something else.</i>
+<i>It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt.</i>
 
-Kunio Yaobi
+Grimsley
