@@ -1,3 +1,3 @@
-<i>It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt.</i>
+<i>Remember that not getting what you want is sometimes a wonderful stroke of luck.</i>
 
-Grimsley
+Dalai Lama
