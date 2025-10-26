@@ -1,3 +1,3 @@
-<i>Remember that not getting what you want is sometimes a wonderful stroke of luck.</i>
+<i>If you can’t do something, then don’t. Focus on what you can do.</i>
 
-Dalai Lama
+Shiroe
