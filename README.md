@@ -1,3 +1,3 @@
-<i>If you can’t do something, then don’t. Focus on what you can do.</i>
+<i>I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person</i>
 
-Shiroe
+Armin Arlert
