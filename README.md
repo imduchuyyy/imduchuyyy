@@ -1,3 +1,3 @@
-<i>How wonderful it is that nobody need wait a single moment before starting to improve the world.</i>
+<i>Being lonely is more painful then getting hurt.</i>
 
-Anne Frank
+Monkey D Luffy
