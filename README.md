@@ -1,3 +1,3 @@
-<i>There are no regrets. If one can be proud of one’s life, one should not wish for another chance.</i>
+<i>I would rather die of passion than of boredom.</i>
 
-Saber
+Vincent van Gogh
