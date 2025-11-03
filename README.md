@@ -1,3 +1,3 @@
-<i>I would rather die of passion than of boredom.</i>
+<i>Dream big and dare to fail.</i>
 
-Vincent van Gogh
+Norman Vaughan
