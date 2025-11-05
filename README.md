@@ -1,3 +1,3 @@
-<i>Life is not a game of luck. If you wanna win, work hard.</i>
+<i>You can’t always hold on to the things that are important. By letting them go we gain something else.</i>
 
-Sora
+Kunio Yaobi
