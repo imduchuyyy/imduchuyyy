@@ -1,3 +1,3 @@
-<i>You can’t always hold on to the things that are important. By letting them go we gain something else.</i>
+<i>Today might be the chance to grasp the chance to let your talent bloom</i>
 
-Kunio Yaobi
+Tooru Oikawa
