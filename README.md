@@ -1,3 +1,3 @@
-<i>Today might be the chance to grasp the chance to let your talent bloom</i>
+<i>A dropout will beat a genius through hard work.</i>
 
-Tooru Oikawa
+Rock Lee
