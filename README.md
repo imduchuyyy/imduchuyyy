@@ -1,3 +1,3 @@
-<i>A dropout will beat a genius through hard work.</i>
+<i>It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings.</i>
 
-Rock Lee
+Ann Landers
