@@ -1,3 +1,3 @@
-<i>Definiteness of purpose is the starting point of all achievement.</i>
+<i>The ticket to the future is always open.</i>
 
-W. Clement Stone
+Vash The Stampede
