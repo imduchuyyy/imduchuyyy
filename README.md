@@ -1,3 +1,3 @@
-<i>If you don’t share someone’s pain, you can never understand them.</i>
+<i>Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin</i>
 
-Nagato
+Kenny Ackerman
