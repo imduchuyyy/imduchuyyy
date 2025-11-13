@@ -1,3 +1,3 @@
-<i>Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin</i>
+<i>The most difficult thing is the decision to act, the rest is merely tenacity.</i>
 
-Kenny Ackerman
+Amelia Earhart
