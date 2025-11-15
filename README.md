@@ -1,3 +1,3 @@
-<i>Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.</i>
+<i>To act is not necessarily compassion. True compassion sometimes comes from inaction.</i>
 
-Booker T. Washington
+Hinata Miyake
