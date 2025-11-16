@@ -1,3 +1,3 @@
-<i>To act is not necessarily compassion. True compassion sometimes comes from inaction.</i>
+<i>Too many of us are not living our dreams because we are living our fears.</i>
 
-Hinata Miyake
+Les Brown
