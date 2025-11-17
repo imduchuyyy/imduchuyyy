@@ -1,3 +1,3 @@
-<i>Too many of us are not living our dreams because we are living our fears.</i>
+<i>It is at the moment of death that humanity has value.</i>
 
-Les Brown
+Archer
