@@ -1,3 +1,3 @@
-<i>It is at the moment of death that humanity has value.</i>
+<i>Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?</i>
 
-Archer
+Juuzou Suzuya
