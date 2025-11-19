@@ -1,3 +1,3 @@
-<i>Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?</i>
+<i>Nothing is impossible, the word itself says, “I’m possible!”</i>
 
-Juuzou Suzuya
+–Audrey Hepburn
