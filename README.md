@@ -1,3 +1,3 @@
-<i>Nothing is impossible, the word itself says, “I’m possible!”</i>
+<i>Winning isn’t everything, but wanting to win is.</i>
 
-–Audrey Hepburn
+Vince Lombardi
