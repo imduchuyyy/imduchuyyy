@@ -1,3 +1,3 @@
-<i>Winning isn’t everything, but wanting to win is.</i>
+<i>A person who never made a mistake never tried anything new.</i>
 
-Vince Lombardi
+ Albert Einstein
