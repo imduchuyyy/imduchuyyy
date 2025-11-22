@@ -1,3 +1,3 @@
-<i>A person who never made a mistake never tried anything new.</i>
+<i>I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.</i>
 
- Albert Einstein
+Leonardo da Vinci
