@@ -1,3 +1,3 @@
-<i>I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.</i>
+<i>Certain things catch your eye, but pursue only those that capture the heart.</i>
 
-Leonardo da Vinci
+ Ancient Indian Proverb
