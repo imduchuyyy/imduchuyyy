@@ -1,3 +1,3 @@
-<i>Certain things catch your eye, but pursue only those that capture the heart.</i>
+<i>It is never too late to be what you might have been.</i>
 
- Ancient Indian Proverb
+George Eliot
