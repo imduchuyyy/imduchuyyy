@@ -1,3 +1,3 @@
-<i>It is never too late to be what you might have been.</i>
+<i>If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.</i>
 
-George Eliot
+Sheryl Sandberg
