@@ -1,3 +1,3 @@
-<i>If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.</i>
+<i>It’s just pathetic to give up on something before you even give it a shot.</i>
 
-Sheryl Sandberg
+Reiko Mikami
