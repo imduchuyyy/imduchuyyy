@@ -1,3 +1,3 @@
-<i>Life s a bore if you don t challenge yourself</i>
+<i>Whatever the mind of man can conceive and believe, it can achieve.</i>
 
-Yuu Nishinoya
+Napoleon Hill
