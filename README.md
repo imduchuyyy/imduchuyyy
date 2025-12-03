@@ -1,3 +1,3 @@
-<i>The most common way people give up their power is by thinking they don’t have any.</i>
+<i>The question isn’t who is going to let me; it’s who is going to stop me.</i>
 
-Alice Walker
+Ayn Rand
