@@ -1,3 +1,3 @@
-<i>The question isn’t who is going to let me; it’s who is going to stop me.</i>
+<i>Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.</i>
 
-Ayn Rand
+Mavis Vermillion
