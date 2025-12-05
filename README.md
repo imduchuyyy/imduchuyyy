@@ -1,3 +1,3 @@
-<i>Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.</i>
+<i>Life is 10% what happens to me and 90% of how I react to it.</i>
 
-Mavis Vermillion
+Charles Swindoll
