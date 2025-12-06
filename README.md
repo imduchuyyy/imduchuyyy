@@ -1,3 +1,3 @@
-<i>Life is 10% what happens to me and 90% of how I react to it.</i>
+<i>Life is what we make it, always has been, always will be.</i>
 
-Charles Swindoll
+Grandma Moses
