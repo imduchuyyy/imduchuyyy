@@ -1,3 +1,3 @@
-<i>Life is what we make it, always has been, always will be.</i>
+<i>I would rather die of passion than of boredom.</i>
 
-Grandma Moses
+Vincent van Gogh
