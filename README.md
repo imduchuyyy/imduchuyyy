@@ -1,3 +1,3 @@
-<i>I would rather die of passion than of boredom.</i>
+<i>Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart.</i>
 
-Vincent van Gogh
+Mavis Vermillion
