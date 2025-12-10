@@ -1,3 +1,3 @@
-<i>When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey.</i>
+<i>Go confidently in the direction of your dreams.  Live the life you have imagined.</i>
 
-Hinata Miyake
+Henry David Thoreau
