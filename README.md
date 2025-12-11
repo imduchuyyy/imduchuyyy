@@ -1,3 +1,3 @@
-<i>Go confidently in the direction of your dreams.  Live the life you have imagined.</i>
+<i>The person who says it cannot be done should not interrupt the person who is doing it.</i>
 
-Henry David Thoreau
+Chinese Proverb
