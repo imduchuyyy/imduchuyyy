@@ -1,3 +1,3 @@
-<i>The person who says it cannot be done should not interrupt the person who is doing it.</i>
+<i>The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful.</i>
 
-Chinese Proverb
+Roy Mustang
