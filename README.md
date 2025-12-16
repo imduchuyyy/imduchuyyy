@@ -1,3 +1,3 @@
-<i>You can die anytime, but living takes true courage.</i>
+<i>Either you run the day, or the day runs you.</i>
 
-Kenshin Himura
+Jim Rohn
