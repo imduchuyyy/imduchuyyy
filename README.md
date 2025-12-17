@@ -1,3 +1,3 @@
-<i> Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end. </i>
+<i> It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. </i>
 
-Clare
+Grimsley
