@@ -1,3 +1,3 @@
-<i> It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. </i>
+<i> Being lonely is more painful then getting hurt. </i>
 
-Grimsley
+Monkey D Luffy
