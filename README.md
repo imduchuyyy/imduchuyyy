@@ -1,3 +1,3 @@
-<i> Being lonely is more painful then getting hurt. </i>
+<i> Power comes in response to a need, not a desire. You have to create that need. </i>
 
-Monkey D Luffy
+Goku
