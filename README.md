@@ -1,3 +1,3 @@
-<i> Power comes in response to a need, not a desire. You have to create that need. </i>
+<i> No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least </i>
 
-Goku
+Levi Ackerman
