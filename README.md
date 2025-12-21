@@ -1,3 +1,3 @@
-<i> No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least </i>
+<i> Fall seven times and stand up eight. </i>
 
-Levi Ackerman
+Japanese Proverb
