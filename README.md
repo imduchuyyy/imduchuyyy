@@ -1,3 +1,3 @@
-<i> Power comes in response to a need, not a desire. You have to create that need. </i>
+<i> Remember no one can make you feel inferior without your consent. </i>
 
-Goku
+Eleanor Roosevelt
