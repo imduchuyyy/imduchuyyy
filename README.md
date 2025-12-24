@@ -1,3 +1,3 @@
-<i> Remember no one can make you feel inferior without your consent. </i>
+<i> Build your own dreams, or someone else will hire you to build theirs. </i>
 
-Eleanor Roosevelt
+Farrah Gray
