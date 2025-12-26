@@ -1,3 +1,3 @@
-<i> What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. </i>
+<i> Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. </i>
 
-Bob Dylan
+Sebastian Michaelis
