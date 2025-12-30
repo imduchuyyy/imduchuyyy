@@ -1,3 +1,3 @@
-<i> It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight </i>
+<i> If you just submit yourself to fate, then that’s the end of it. </i>
 
-Eren
+Keiichi Maebara
