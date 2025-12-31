@@ -1,3 +1,3 @@
-<i> If you just submit yourself to fate, then that’s the end of it. </i>
+<i> I refuse to let my fear control me anymore. </i>
 
-Keiichi Maebara
+Maka Albarn
