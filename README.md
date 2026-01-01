@@ -1,3 +1,3 @@
-<i> I refuse to let my fear control me anymore. </i>
+<i> No matter how hard or impossible it is, never lose sight of your goal. </i>
 
-Maka Albarn
+Monkey D Luffy
