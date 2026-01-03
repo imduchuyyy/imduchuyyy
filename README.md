@@ -1,3 +1,3 @@
-<i> You should never give up on life, no matter how you feel. No matter how badly you want to give up. </i>
+<i> If you can’t find a reason to fight, then you shouldn’t be fighting. </i>
 
-Canaan
+Akame
