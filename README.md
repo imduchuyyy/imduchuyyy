@@ -1,3 +1,3 @@
-<i> If you can’t find a reason to fight, then you shouldn’t be fighting. </i>
+<i> Do what you can, where you are, with what you have. </i>
 
-Akame
+Teddy Roosevelt
