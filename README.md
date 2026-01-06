@@ -1,3 +1,3 @@
-<i> What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. </i>
+<i> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? </i>
 
-Bob Dylan
+Juuzou Suzuya
