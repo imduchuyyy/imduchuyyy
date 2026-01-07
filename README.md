@@ -1,3 +1,3 @@
-<i> Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? </i>
+<i> Protecting someone means giving them a place to belong. Giving them a place where they can be happy. </i>
 
-Juuzou Suzuya
+Princess Lenessia
