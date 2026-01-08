@@ -1,3 +1,3 @@
-<i> Protecting someone means giving them a place to belong. Giving them a place where they can be happy. </i>
+<i> Change your thoughts and you change your world. </i>
 
-Princess Lenessia
+Norman Vincent Peale
