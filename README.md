@@ -1,3 +1,3 @@
-<i> The only limit to our realization of tomorrow will be our doubts of today. </i>
+<i> We must balance conspicuous consumption with conscious capitalism. </i>
 
-Franklin D. Roosevelt
+Kevin Kruse
