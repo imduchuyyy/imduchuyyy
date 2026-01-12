@@ -1,3 +1,3 @@
-<i> We must balance conspicuous consumption with conscious capitalism. </i>
+<i> Either write something worth reading or do something worth writing. </i>
 
-Kevin Kruse
+Benjamin Franklin
