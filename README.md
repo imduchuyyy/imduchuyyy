@@ -1,3 +1,3 @@
-<i> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at. </i>
+<i> If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! </i>
 
-Jesse Owens
+Haruhi Fujioka
