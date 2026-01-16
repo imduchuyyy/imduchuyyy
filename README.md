@@ -1,3 +1,3 @@
-<i> If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! </i>
+<i> When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. </i>
 
-Haruhi Fujioka
+Henry Ford
