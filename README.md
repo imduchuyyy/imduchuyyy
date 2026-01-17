@@ -1,3 +1,3 @@
-<i> When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. </i>
+<i> The most difficult thing is the decision to act, the rest is merely tenacity. </i>
 
-Henry Ford
+Amelia Earhart
