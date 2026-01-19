@@ -1,3 +1,3 @@
-<i> Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. </i>
+<i> The only limit to our realization of tomorrow will be our doubts of today. </i>
 
-Booker T. Washington
+Franklin D. Roosevelt
