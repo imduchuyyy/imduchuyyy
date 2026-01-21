@@ -1,3 +1,3 @@
-<i> Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder. </i>
+<i> Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. </i>
 
-Gildarts Clive
+Sebastian Michaelis
