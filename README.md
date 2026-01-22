@@ -1,3 +1,3 @@
-<i> Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. </i>
+<i> If you wanna make people dream, you’ve gotta start by believing in that dream yourself! </i>
 
-Sebastian Michaelis
+Seiya Kanie
