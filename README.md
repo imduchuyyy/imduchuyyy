@@ -1,3 +1,3 @@
-<i> Too many of us are not living our dreams because we are living our fears. </i>
+<i> Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. </i>
 
-Les Brown
+Miss Kobayashi
