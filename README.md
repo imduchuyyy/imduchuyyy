@@ -1,3 +1,3 @@
-<i> Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. </i>
+<i> When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us. </i>
 
-Miss Kobayashi
+Helen Keller
