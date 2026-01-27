@@ -1,3 +1,3 @@
-<i> A place where someone still thinks about you is a place you can call home. </i>
+<i> If you don’t like your destiny, don’t accept it. </i>
 
-Jiraiya
+Naruto Uzumaki
