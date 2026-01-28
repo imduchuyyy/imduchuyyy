@@ -1,3 +1,3 @@
-<i> If you don’t like your destiny, don’t accept it. </i>
+<i> The greatest glory in living lies not in never falling, but in rising every time we fall. </i>
 
-Naruto Uzumaki
+Nelson Mandela
