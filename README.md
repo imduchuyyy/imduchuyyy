@@ -1,3 +1,3 @@
-<i> The greatest glory in living lies not in never falling, but in rising every time we fall. </i>
+<i> Being weak is nothing to be ashamed of… Staying weak is !! </i>
 
-Nelson Mandela
+Fuegoleon Vermillion
