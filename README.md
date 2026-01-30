@@ -1,3 +1,3 @@
-<i> Being weak is nothing to be ashamed of… Staying weak is !! </i>
+<i> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at. </i>
 
-Fuegoleon Vermillion
+Jesse Owens
