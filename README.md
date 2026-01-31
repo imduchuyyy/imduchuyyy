@@ -1,3 +1,3 @@
-<i> The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at. </i>
+<i> Success usually comes to those who are too busy to be looking for it. </i>
 
-Jesse Owens
+Henry David Thoreau
