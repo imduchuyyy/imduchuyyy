@@ -1,3 +1,3 @@
-<i> The ticket to the future is always open. </i>
+<i> Life shrinks or expands in proportion to one’s courage. </i>
 
-Vash The Stampede
+Anais Nin
