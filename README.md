@@ -1,3 +1,3 @@
-<i> Life shrinks or expands in proportion to one’s courage. </i>
+<i> Believe you can and you’re halfway there. </i>
 
-Anais Nin
+Theodore Roosevelt
